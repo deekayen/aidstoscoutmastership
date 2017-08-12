@@ -1,6 +1,6 @@
 # III. Handicraft and Skill
 
-![The boy of initiative is the boy who will be picked for the job.](initiative.jpg)
+![The boy of initiative is the boy who will be picked for the job.](images/initiative.jpg)
 
 There is today, as there has always been, a fearful waste of human material. This is. mainly due to ineffective training. The general mass of boys are not taught to like work. Even when they are taught handicrafts or business qualities, they are seldom shown how to apply these to making a career, nor is the flame of ambition kindled in them. Square pegs are too often placed in round holes.
 
