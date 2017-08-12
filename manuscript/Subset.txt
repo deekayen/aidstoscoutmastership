@@ -3,4 +3,3 @@ foreward.md
 mainmatter.txt
 the_scoutmaster.md
 the_boy.md
-scouting.md
