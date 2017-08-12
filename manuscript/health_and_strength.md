@@ -1,6 +1,6 @@
 # II. Health and Strength
 
-![Interest the boy in steadily exercising his body and limbs.](iamges/exercise.jpg)
+![Interest the boy in steadily exercising his body and limbs.](images/exercise.jpg)
 
 ## Importance of Health
 
