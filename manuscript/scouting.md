@@ -71,7 +71,6 @@ The details of these four branches are shown here:
 |        | Continence |
 |        | Camping |
 |        | Physical Development |
-|----
 | **Strength** | Games |
 |          | Swimming |
 |          | Hiking |
@@ -82,15 +81,10 @@ The details of these four branches are shown here:
 | Qualities to be Aimed For | Through Practice Of |
 |---------------------------|---------------------|
 | **Technical Skill** | Scoutcraft |
-|----
 | **Inventiveness** | Camp Expedients |
-|----
 | **Intellectual** | Pioneering |
-|----
 | **Observation** | Rewards by Badges |
-|----
 | **Dedication** | Hobbies |
-|----
 | **Self-Expression** | Woodcraft |
 |                 | Tracking |
 
@@ -98,15 +92,10 @@ The details of these four branches are shown here:
 | Qualities to be Aimed For | Through Practice Of |
 |--------|----------|
 | **Unselfishness** | Scout Law and Promise |
-|----
 | **Civic Duty** | Good Turns |
-|----
 | **Patriotism** | First Aid |
-|----
 | **Service for Country** | Life Saving |
-|----
 | **Service for Humanity** | Firemanship |
-|----
 | **Service for God** | Accident Corps |
 |                 | Hospital Assistance |
 |                 | Other Community Service |
