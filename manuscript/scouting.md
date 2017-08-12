@@ -6,13 +6,13 @@ Scouting is a game for boys, under the leadership of boys, in which elder brothe
 
 Its strongest appeal is through Nature Study and Woodcraft. It deals with the individual, not with the Company. It raises intellectual as well as purely physical or purely moral qualities.
 
-At first it used to aim for these ends — now by experience we know that, where properly handled, it gains them.
+At first it used to aim for these ends - now by experience we know that, where properly handled, it gains them.
 
-Perhaps the best exponent of the aim and methods of Scouting has been Dean James E. Russell, of Teachers College, Columbia University, New York. He writes thus:–
+Perhaps the best exponent of the aim and methods of Scouting has been Dean James E. Russell, of Teachers College, Columbia University, New York. He writes thus:-
 
 > The program of the Boy Scouts is **the man's job cut down to boy's size**. It appeals to the boy not merely because he is a boy, but because he is a man in the making ... The Scouting program does not ask of the boy anything that the man does not do; but step by step it takes him from the place where he is until he reaches the place where he would be ...
 >
-> It is not the curriculum of Scouting that is the most striking feature, but it is the method. As a systematic scheme of leading boys to do the right thing and to inculcate right habits it is almost ideal. In the doing, two things stand out — the one is that habits are fixed; the other is that it affords an opportunity for initiative, self-control, self-reliance, and self-direction.
+> It is not the curriculum of Scouting that is the most striking feature, but it is the method. As a systematic scheme of leading boys to do the right thing and to inculcate right habits it is almost ideal. In the doing, two things stand out - the one is that habits are fixed; the other is that it affords an opportunity for initiative, self-control, self-reliance, and self-direction.
 >
 > In the development of initiative Scouting depends not merely on its program of work for the boy, but in a marvelous way it also utilises its machinery of administration. In the administrative scheme a splendid opportunity is given to break away from any incrusting method. It comes about in the Patrol and in the Troop. It teaches the boys to work together in teams. It secures co-operative effort for a common end; that is a democratic thing in and of itself ...
 >
@@ -34,12 +34,12 @@ Citizenship has been defined briefly as "active loyalty to the community." In a 
 
 The Four Branches of Scout Training
 
-To accomplish the aim of training for active citizenship, we take up the following four branches which are essential in building up good citizens, and we inculcate them from within instead of from without:–
+To accomplish the aim of training for active citizenship, we take up the following four branches which are essential in building up good citizens, and we inculcate them from within instead of from without:-
 
-1. **Character** — which we teach through: the Patrol System, the Scout Law, Scout lore, woodcraft, responsibility of the Patrol Leader, team games and the re- sourcefulness involved in camp work. This includes the realisation of God the Creator through His works; the appreciation of beauty in Nature; and through the love of plants or animals with which outdoor life has made one familiar.
-2. **Health and Strength** — Through games, exercises, and knowledge of personal hy- giene and diet.
-3. **Handcraft and Skill** — occasionally through indoor activities, but more specially through pioneering, bridge-building, camp expedients, self-expression through the arts, which all tend to make efficient workmen.
-4. **Service to Others** — The carrying into daily life of the practice of religion by "good turns," dealing with quite small good actions as well as with community service, accidents, life-saving.
+1. **Character** - which we teach through: the Patrol System, the Scout Law, Scout lore, woodcraft, responsibility of the Patrol Leader, team games and the re- sourcefulness involved in camp work. This includes the realisation of God the Creator through His works; the appreciation of beauty in Nature; and through the love of plants or animals with which outdoor life has made one familiar.
+2. **Health and Strength** - Through games, exercises, and knowledge of personal hy- giene and diet.
+3. **Handcraft and Skill** - occasionally through indoor activities, but more specially through pioneering, bridge-building, camp expedients, self-expression through the arts, which all tend to make efficient workmen.
+4. **Service to Others** - The carrying into daily life of the practice of religion by "good turns," dealing with quite small good actions as well as with community service, accidents, life-saving.
 
 The details of these four branches are shown here:
 
@@ -115,7 +115,7 @@ The details of these four branches are shown here:
 
 By the term "Scouting" is meant the work and attributes of back-woodsmen, ex- plorers, hunters, seamen, airmen, pioneers and frontiersmen.
 
-In giving the elements of these to boys we supply a system of games and practices which meets their desires and instincts, — and is at the same time educative.
+In giving the elements of these to boys we supply a system of games and practices which meets their desires and instincts, - and is at the same time educative.
 
 From the boys' point of view Scouting puts them into fraternity-gangs which is their natural Organisation, whether for games, mischief, or loafing; it gives them a smart dress and equipment; it appeals to their imagination and romance; and it engages them in an active, open-air life.
 
@@ -127,7 +127,7 @@ The Scout training attracts boys of all classes, high and low, rich and poor, an
 
 It gives a good start in technical training through badges for proficiency in various kinds of hobbies and handicrafts, in addition to the actual Scouts' Badges of First and Second Class, testifying to their capabilities in swimming, pioneering, cooking, woodsmanship, and other points of manliness and handiness. The object of offering so many as we do at an elementary standard is to draw out the boys of every type to try their hand at various kinds of work, and the watchful Scoutmaster can very quickly recognise the particular bent of each boy and encourage it accordingly. And that is the best road towards expanding his individual character and starting a boy on a successful career. Moreover, we encourage personal responsibility in the boy for his own physical development and health: and we trust in his honour and expect him to do a Good Turn to someone every day.
 
-Where the Scoutmaster is himself a bit of a boy, and can see it all from the boy's point of view, he can, if he is imaginative, invent new activities, with frequent variations, to meet the boys' thirst for novelty. Note the theatres. If they find that a play does not appeal to the public, they don't go on hammering away with it in the hope that it will in the end do so — they take it off and put on some new attraction.
+Where the Scoutmaster is himself a bit of a boy, and can see it all from the boy's point of view, he can, if he is imaginative, invent new activities, with frequent variations, to meet the boys' thirst for novelty. Note the theatres. If they find that a play does not appeal to the public, they don't go on hammering away with it in the hope that it will in the end do so - they take it off and put on some new attraction.
 
 Boys can see adventure in a dirty old duck-puddle, and if the Scoutmaster is a boy-man he can see it too. It does not require great expense or apparatus to devise new ideas; the boys themselves can often help with suggestions.
 
@@ -149,7 +149,7 @@ Where a Troop resounds with jolly laughter, and enjoys success in competitions, 
 
 The underlying feature is the spirit of the Movement, and the key that unlocks this spirit is the romance of Woodcraft and Nature Lore.
 
-Where is there a boy, or for the matter of that a grown-up man, even in these materialistic times to whom the call of the wild and the open road does not appeal? Maybe it is a primitive instinct — anyway it is there. With that key a great door may be unlocked, if it is only to admit fresh air and sunshine into lives that were otherwise grey. But generally it can do more than this. The heroes of the wild, the frontiersmen and explorers, the rovers of the sea, the airmen of the clouds are Pied Pipers to the boys.
+Where is there a boy, or for the matter of that a grown-up man, even in these materialistic times to whom the call of the wild and the open road does not appeal? Maybe it is a primitive instinct - anyway it is there. With that key a great door may be unlocked, if it is only to admit fresh air and sunshine into lives that were otherwise grey. But generally it can do more than this. The heroes of the wild, the frontiersmen and explorers, the rovers of the sea, the airmen of the clouds are Pied Pipers to the boys.
 
 Where they lead the boys will follow, and these will dance to their tune when it sings the song of manliness and pluck, of adventure and high endeavour, of efficiency and skill, of cheerful sacrifice of self for others.
 

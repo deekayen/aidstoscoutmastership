@@ -90,11 +90,11 @@ Many troops are giving entertainments in the winter months and are thus not only
 
 Hobbies, handcraft, intelligence and health are preliminary steps for developing love of work and ability to carry on, which are essential to successful work. The second stage is fitting the young worker to the right kind of work.
 
-The best workers, like the happiest livers, look upon their work as a kind of game: the harder they play the more enjoyable it becomes. H. G. Wells has said:–
+The best workers, like the happiest livers, look upon their work as a kind of game: the harder they play the more enjoyable it becomes. H. G. Wells has said:-
 
 > I have noticed that so called great men are really boys at heart, that is, they are boys in the eagerness of their enjoyment of their task. They work because they like to work, and thus their work is really play to them. The boy is not only father to the man, but he is the man and does not disappear at all.
 
-Ralph Parlette says truly:–
+Ralph Parlette says truly:-
 
 > Play is Loving to do things, and Work is Having to do things.
 
