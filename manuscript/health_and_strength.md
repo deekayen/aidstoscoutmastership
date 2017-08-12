@@ -185,7 +185,7 @@ Temperate eating is almost as necessary with the boy as temperate drinking with 
 
 Of all the points in the education of a boy the most difficult and one of the most important is that of sex hygiene. Body, mind, and soul, health, morality, and character, all are involved in the question. It is a matter which has to be approached with tact on the part of the Scoutmaster, according to the individual character of each case. It is not as yet dealt with adequately by the Education authorities. But it is one that cannot be ignored in the education of a boy, still less in that of the girl.
 
-![Make your boys realize that it is manly to be clean. Keep them busy with healthy activities - that's your best means for helping them to kick out smutty thoughts and unclean habits.](images/kick_thoughts.md)
+![Make your boys realize that it is manly to be clean. Keep them busy with healthy activities - that's your best means for helping them to kick out smutty thoughts and unclean habits.](images/kick_thoughts.jpg)
 
 There is a great barrier of prejudice and false prudery on the part of parents and public still to be overcome, and this has to be recognised and handled tactfully. It is, of course, primarily the duty of parents to see that their children receive proper instruction, but a very large number of them shirk their duty and then build up excuses for doing so. Such neglect is little short of criminal. As Dr. Allen Warner writes:-
 
