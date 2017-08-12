@@ -18,13 +18,13 @@ There are thousands of boys being wasted daily through being left to become char
 
 They could be saved if only the right surroundings or environment were given to them at the receptive time of their lives. And there are many thousands of others who may not be placed on quite so low a level (for there are wasters in every class of life), but who would be all the better men and more valuable to the country and more satisfactory to themselves if they could be persuaded, at the right age, to develop their characters.
 
-Here, then, lies the most important object in the Boy Scout training — to educate; not to instruct, mind you, but to educate, that is, to draw out the boy to learn for himself, of his own desire, the things that tend to build up character in him.
+Here, then, lies the most important object in the Boy Scout training - to educate; not to instruct, mind you, but to educate, that is, to draw out the boy to learn for himself, of his own desire, the things that tend to build up character in him.
 
 ## One Reason Why a Troop Should not Exceed Thirty Two
 
-The number in a Troop should preferably not exceed thirty-two. I suggest this number because in training boys myself I have found that sixteen was about as many as I could deal with — in getting at and bringing out the individual character in each. I allow for other people being twice as capable as myself and hence the total of thirty-two. Men talk of having fine Troops of 60 or even 100 — and their leaders tell me that their boys are equally well trained as in smaller Troops. I express admiration ("admiration" literally translated means "surprise"), and I don't believe them.
+The number in a Troop should preferably not exceed thirty-two. I suggest this number because in training boys myself I have found that sixteen was about as many as I could deal with - in getting at and bringing out the individual character in each. I allow for other people being twice as capable as myself and hence the total of thirty-two. Men talk of having fine Troops of 60 or even 100 - and their leaders tell me that their boys are equally well trained as in smaller Troops. I express admiration ("admiration" literally translated means "surprise"), and I don't believe them.
 
-"Why worry about individual training?" they ask. Because it is the only way by which you can educate. You can instruct any number of boys, a thousand at a time if you have a loud voice and attractive methods of disciplinary means. But that is not training — it is not education.
+"Why worry about individual training?" they ask. Because it is the only way by which you can educate. You can instruct any number of boys, a thousand at a time if you have a loud voice and attractive methods of disciplinary means. But that is not training - it is not education.
 
 Education is the thing that counts in building character and In making men.
 
@@ -75,7 +75,7 @@ Sir Henry Knyvett, in 1596, warned Queen Elizabeth that the State which neglects
 
 Discipline is not gained by punishing a child for a bad habit, but by substituting a better occupation, that will absorb his attention, and gradually lead him to forget and abandon the old one.
 
-The Scoutmaster should insist on discipline, and strict, quick obedience in small details. Let the boys run riot only when you give leave for it — which is a good thing to do every now and then.
+The Scoutmaster should insist on discipline, and strict, quick obedience in small details. Let the boys run riot only when you give leave for it - which is a good thing to do every now and then.
 
 ## Sense of Honour
 
@@ -105,7 +105,7 @@ He could not but feel himself a more capable fellow than before, and therefore, 
 
 First aid or firemanship, or trek cart or bridge building are of value for handiness and use of wits, since the boy, while working in co-operation with the others, is responsible for his own separate part of the job.
 
-Swimming has its educational value — mental, moral, and physical — in giving you a sense of mastery over an element, and of power of saving life, and in the development of wind and limb. When training the South African Constabulary I used to send the men out in pairs to carry out long distance rides of two or three hundred miles to teach them to fend for themselves and to use their intelligence.
+Swimming has its educational value - mental, moral, and physical - in giving you a sense of mastery over an element, and of power of saving life, and in the development of wind and limb. When training the South African Constabulary I used to send the men out in pairs to carry out long distance rides of two or three hundred miles to teach them to fend for themselves and to use their intelligence.
 
 But when I had a somewhat dense pupil he was sent out alone, without another to lean upon, to find his own way, make his own arrangements for feeding himself and his horse, and for drawing up the report of his expedition unaided. This was the best training of all in self-reliance and intelligence, and this principle is one which I can confidently recommend to Scoutmasters in training their Scouts.
 
@@ -117,13 +117,13 @@ Therefore, it is most advisable that Scoutmasters who have not had much experien
 
 ## Enjoyment of Life
 
-Why is Nature Lore considered a Key Activity in Scouting? That is a question on which hangs the difference between Scout work and that of the ordinary boys' club. It is easily answered in the phrase: "We want to teach our boys not merely how to get a living, but how to live" — that is, in the higher sense, how to enjoy life. Nature lore, as I have probably insisted only too often, gives the best means of opening out the minds and thoughts of boys, and at the same time, if the point is not lost sight of by their Scoutmaster, it gives them the power of appreciating beauty in nature, and consequently in art, such as leads them to a higher enjoyment of life. This is in addition to the realisation of God the Creator through His wondrous work, which when coupled with active performance of His will in service for others constitutes the concrete foundation of religion.
+Why is Nature Lore considered a Key Activity in Scouting? That is a question on which hangs the difference between Scout work and that of the ordinary boys' club. It is easily answered in the phrase: "We want to teach our boys not merely how to get a living, but how to live" - that is, in the higher sense, how to enjoy life. Nature lore, as I have probably insisted only too often, gives the best means of opening out the minds and thoughts of boys, and at the same time, if the point is not lost sight of by their Scoutmaster, it gives them the power of appreciating beauty in nature, and consequently in art, such as leads them to a higher enjoyment of life. This is in addition to the realisation of God the Creator through His wondrous work, which when coupled with active performance of His will in service for others constitutes the concrete foundation of religion.
 
 Some years ago I was in the sitting-room of a friend who had just died, and lying on the table beside his abandoned pipe and tobacco pouch was a book by Richard Jefferies-Field and Hedgerow, in which a page was turned down which said:–
 
 > The conception of moral good is not altogether satisfying. The highest form known to us at present is pure unselfishness, the doing of good not for any reward now or hereafter, nor for the completion of any imaginary scheme. That is the best we know, but how unsatisfactory! An outlet is needed more fully satisfying to the heart's inmost desire than is afforded by any labour of selfabnegation. It must be something in accord with the perception of beauty and of an ideal. Personal virtue is not enough. Though I cannot name the ideal good it seems to me that it will in some way be closely associated with the ideal beauty of Nature.
 
-In other words, one may suggest that happiness is a matter of inner conscience and outward sense working in combination. It is to be got where the conscience as well as the senses together are satisfied. If the above quoted definition be true, the converse is at least equally certain — namely, that the appreciation of beauty cannot bring happiness if your conscience is not at rest. So that if we want our boys to gain happiness in life we must put into them the practice of doing good to their neighbours, and in addition, the appreciation of the beautiful in Nature.
+In other words, one may suggest that happiness is a matter of inner conscience and outward sense working in combination. It is to be got where the conscience as well as the senses together are satisfied. If the above quoted definition be true, the converse is at least equally certain - namely, that the appreciation of beauty cannot bring happiness if your conscience is not at rest. So that if we want our boys to gain happiness in life we must put into them the practice of doing good to their neighbours, and in addition, the appreciation of the beautiful in Nature.
 
 The shortest step to this last is through Nature lore:– ... books in the running brooks, Sermons in stones, and good in everything.
 
@@ -171,7 +171,7 @@ This may be attributed to a great extent to the fact that often instruction inst
 
 The consequence has been that the best boys in the Bibleclass or Sunday School have grasped the idea, but in many cases they have, by perfection in the letter, missed the spirit of the teaching and have become zealots with a restricted outlook, while the majority have never really been enthused, and have, as soon as they have left the class or school, lapsed into indifference and irreligion, and there has been no hand to retain them at the critical time of their lives, i.e., sixteen to twenty-four.
 
-It is not given to every man to be a good teacher of religion, and often the most earnest are the greatest failures — and without knowing it.
+It is not given to every man to be a good teacher of religion, and often the most earnest are the greatest failures - and without knowing it.
 
 We have, fortunately, a number of exceptionally well-qualified men in this respect among our Scoutmasters, but there must also be a number who are doubtful as to their powers, and where a man feels this, he does well to get a Chaplain, or other experienced teacher, for his Troop.
 
@@ -195,19 +195,19 @@ The way in which Scouting can help is through the following:–
 
 (d) Retention of the older boy.
 
-**(a) Personal Example** — There is no doubt whatever that in the boys' eyes it is what a man does that counts and not so much what he says. A Scoutmaster has, therefore, the greatest responsibility on his shoulders for doing the right thing from the right motives, and for letting it be seen that he does so, but without making a parade of it. Here the attitude of elder brother rather than of teacher tells with the greater force.
+**(a) Personal Example** - There is no doubt whatever that in the boys' eyes it is what a man does that counts and not so much what he says. A Scoutmaster has, therefore, the greatest responsibility on his shoulders for doing the right thing from the right motives, and for letting it be seen that he does so, but without making a parade of it. Here the attitude of elder brother rather than of teacher tells with the greater force.
 
-**(b) Nature Study** — There are sermons in the observation of Nature, say, in bird life, the formation of every feather identical with that of the same species 10,000 miles away, the migration, the nesting, the colouring of the egg, the growth of the young, the mothering, the feeding, the flying power-all done without the aid of man, but under the law of the Creator; these are the best of sermons for boys.
+**(b) Nature Study** - There are sermons in the observation of Nature, say, in bird life, the formation of every feather identical with that of the same species 10,000 miles away, the migration, the nesting, the colouring of the egg, the growth of the young, the mothering, the feeding, the flying power-all done without the aid of man, but under the law of the Creator; these are the best of sermons for boys.
 
 The flowers in their orders, and plants of every kind, their buds and bark, the animals and their habits and species; then the stars in the heavens, with their appointed places and ordered moves in space, give to every one the first conception of Infinity and of the vast scheme of his Creator where man is of so small account. All these have a fascination for boys, which appeals in an absorbing degree to their inquisitiveness and powers of observation, and leads them directly to recognise the hand of God in this world of wonders, if only some one introduces them to it.
 
 The wonder to me of all wonders is how some teachers have neglected this easy and unfailing means of education and have struggled to impose Biblical instruction as the first step towards getting a restless, full-spirited boy to think of higher things.
 
-**(c) Good Turns** — With a little encouragement on the part of the Scoutmaster the practice of daily Good Turns soon becomes a sort of fashion with boys, and it is the very best step towards making a Christian in fact, and not merely in theory. The boy has a natural instinct for good if he only sees a practical way to exercise it, and this Good Turn business meets it and develops it, and in developing it brings out the spirit of Christian charity towards his neighbour.
+**(c) Good Turns** - With a little encouragement on the part of the Scoutmaster the practice of daily Good Turns soon becomes a sort of fashion with boys, and it is the very best step towards making a Christian in fact, and not merely in theory. The boy has a natural instinct for good if he only sees a practical way to exercise it, and this Good Turn business meets it and develops it, and in developing it brings out the spirit of Christian charity towards his neighbour.
 
 This expression of his will to good, is more effective, more natural to the boy, and more in accordance with the Scout method than his passive acceptance of instructive precepts.
 
-**(d) Retention of the Older Boy** — So soon as the ordinary boy begins to get a scholastic knowledge of reading, writing, and arithmetic, he is sent out into the world, as fit and equipped for making his career as a good working citizen. After leaving school, excellent technical schools are generally open to the boy, as well as continuation classes, if he likes to go to them, or if his parents insist on his attending after his day's work is over. The best boys go, and get a good final polish.
+**(d) Retention of the Older Boy** - So soon as the ordinary boy begins to get a scholastic knowledge of reading, writing, and arithmetic, he is sent out into the world, as fit and equipped for making his career as a good working citizen. After leaving school, excellent technical schools are generally open to the boy, as well as continuation classes, if he likes to go to them, or if his parents insist on his attending after his day's work is over. The best boys go, and get a good final polish.
 
 But what about the average and the bad? They are allowed to slide away-just at the one period of their life when they most of all need continuation and completion of what they have been learning, just at the time of their physical, mental and moral change into what they are going to be for the rest of their lives.
 

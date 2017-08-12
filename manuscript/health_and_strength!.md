@@ -10,7 +10,7 @@ We in the Scout Movement can do much by giving to the boys some of the training 
 
 Our task should be to get the boys to be athletic-minded, at the same time showing them that they must first build up their bodily health before they can safely take up strenuous physical exercises. This would be by proper plain feeding, and hygienic care of themselves in the matter of cleanliness, nose breathing, rest, clothing, regular habits, continence, and so on. We must avoid making them in- trospective by thinking of themselves liable to illness, etc., but hold up fitness for sport as the aim of health training.
 
-With only half an hour per week in the ordinary Scout Troop meeting it is not possible for us to give formal physical training, but what we can do is to teach the boy to be personally responsible to himself for his health — how to secure it and keep it; also we can teach him a few exercises that will help him to develop his strength if he will practise them in his own time; and we can interest him in outdoor activities and games as being not only amusement for him but of practical value in making him sound, strong and healthy for life. Health of body involves health of nerves and health of mind.
+With only half an hour per week in the ordinary Scout Troop meeting it is not possible for us to give formal physical training, but what we can do is to teach the boy to be personally responsible to himself for his health - how to secure it and keep it; also we can teach him a few exercises that will help him to develop his strength if he will practise them in his own time; and we can interest him in outdoor activities and games as being not only amusement for him but of practical value in making him sound, strong and healthy for life. Health of body involves health of nerves and health of mind.
 
 Here our character training meets the physical.
 
@@ -54,14 +54,14 @@ Such vigorous Scout games are to my mind the best form of physical education, be
 
 It is important to arrange all games and competitions, as far as possible, so that all the Scouts take part, because we do not want to have merely one or two brilliant performers and the others no use at all. All ought to get practice, and all ought to be pretty good. Games should be organised mainly as team matches, where the Patrol forms the team. In competitions where there are enough entries to make heats, ties should be run off by losers instead of the usual system of by winners, and the game should be to find out which are the worst instead of which are the best. Good men will strive just as hard not to be worst as they would to gain a prize, and this form of competition gives the backward man most practice.
 
-We in the Scouts can show every boy — town or country — how to be a player of games, and so to enjoy life and at the same time to strengthen his physical as well as his moral fibre.
+We in the Scouts can show every boy - town or country - how to be a player of games, and so to enjoy life and at the same time to strengthen his physical as well as his moral fibre.
 
 ## Physical Exercises
 
 Physical exercises are an intensive form of development where you cannot get good or frequent opportunity of games, and may well be used in addition to games, provided that:–
 
 1. They are not made entirely a drill, but something that each boy can really understand and want to practise for himself because of the good that he knows it does him.
-2. The instructor has some knowledge of anatomy and the possible harm of many physical drill movements on the young unformed body. The six body exercises given in Scouting for Boys can be taught without any danger to the lad by Scoutmasters who are not experts in anatomy, etc. (These exercises should be done by the Scout himself — once he has learned the proper actions and breathing — at his own time, at home, and should not become a routine part of a Troop meeting.)
+2. The instructor has some knowledge of anatomy and the possible harm of many physical drill movements on the young unformed body. The six body exercises given in Scouting for Boys can be taught without any danger to the lad by Scoutmasters who are not experts in anatomy, etc. (These exercises should be done by the Scout himself - once he has learned the proper actions and breathing - at his own time, at home, and should not become a routine part of a Troop meeting.)
 
 ![Make each boy feel that he is a responsible being, and responsible therefore for the care of his body and health; that it is part of his duty to God to develop his body to the best extent.](images/body_development.jpg)
 
@@ -69,7 +69,7 @@ We should do everything to get the boy to interest himself in steadily exercisin
 
 It is a good plan, for instance, for each Troop to adopt certain standards for simple exercises like "standing high jump," "hop, step and jump," "putting the bag," and so on, so that each individual Scout can try to increase his own ability and reach a higher standard.
 
-Then a team uniform of sorts is an attraction to the boys, promotes esprit de corps in his athletic work, and incidentally involves changing his clothes before and after playing, encourages a rub down — a wash — cleanliness.
+Then a team uniform of sorts is an attraction to the boys, promotes esprit de corps in his athletic work, and incidentally involves changing his clothes before and after playing, encourages a rub down - a wash - cleanliness.
 
 "How to keep fit," soon becomes a subject in which the athletic boy takes a close personal interest, and can be formed the basis of valuable instruction in self-care, food values, hygiene, continence, temperance, etc., etc. All this means physical education.
 
@@ -77,13 +77,13 @@ Then a team uniform of sorts is an attraction to the boys, promotes esprit de co
 
 One hears a great many people advocating drill as the way to bring about better physical development among boys. I have had a good deal to do with drilling in my time, and if people think they are going to develop a boy's physical strength and set-up by drilling him for an hour a week, they will meet with disappointing results.
 
-Drill as given to soldiers, day by day, for month after month, undoubtedly does bring about great physical development. But the instructors — these are well- trained experts — have their pupils continually under their charge and under strict discipline, and even they occasionally make mistakes, and heart-strain and other troubles are not infrequently produced even in the grown and formed man.
+Drill as given to soldiers, day by day, for month after month, undoubtedly does bring about great physical development. But the instructors - these are well- trained experts - have their pupils continually under their charge and under strict discipline, and even they occasionally make mistakes, and heart-strain and other troubles are not infrequently produced even in the grown and formed man.
 
 Furthermore, drill is all a matter of instruction, of hammering it into the boys, and is in no way an education where they learn it for themselves.
 
-As regards drill for Scouts, I have frequently had to remind Scoutmasters that it is to be avoided — that is, in excess. Apart from militarist objections on the part of some parents, one is averse to it because a second-rate Scoutmaster cannot see the higher aim of Scouting (namely, drawing out of the individual), and not having the originality to teach it even if he saw it, he reverts to drill as an easy means of getting his boys into some sort of shape for making a show on parade.
+As regards drill for Scouts, I have frequently had to remind Scoutmasters that it is to be avoided - that is, in excess. Apart from militarist objections on the part of some parents, one is averse to it because a second-rate Scoutmaster cannot see the higher aim of Scouting (namely, drawing out of the individual), and not having the originality to teach it even if he saw it, he reverts to drill as an easy means of getting his boys into some sort of shape for making a show on parade.
 
-At the same time, Scoutmasters occasionally go too far the other way, and allow their boys to go slack all over the place, without any apparent discipline or smart- ness. This is worse. You want a golden mean — just sufficient instruction to show them what is wanted of them in smartness and deportment, and a fund of team spirit, such as makes them brace themselves up and bear themselves like men for the honour of their Troop.
+At the same time, Scoutmasters occasionally go too far the other way, and allow their boys to go slack all over the place, without any apparent discipline or smart- ness. This is worse. You want a golden mean - just sufficient instruction to show them what is wanted of them in smartness and deportment, and a fund of team spirit, such as makes them brace themselves up and bear themselves like men for the honour of their Troop.
 
 Occasional drills are necessary to keep this up, but these should not be indulged in at the expense of the more valuable Scout training.
 
@@ -97,31 +97,31 @@ But, after all, natural games, plenty of fresh air, wholesome food, and adequate
 
 ## The Out-of-Doors
 
-Oxygen for Ox's Strength. — I once saw some very smart physical drill by a Scout Troop in their headquarters.
+Oxygen for Ox's Strength. - I once saw some very smart physical drill by a Scout Troop in their headquarters.
 
-It was very fresh and good, but, my wig, the air was not! It was, to say the least, "niffy." There was no ventilation. The boys were working like engines, but actually undoing their work by sucking in poison instead of strengthening their blood. Fresh air is half the battle towards producing results in physical exercises and it may advantageously be taken through the skin as well as through the nose when possible. Yes — that open air is the secret of success. It is what Scouting is for — to develop the out-of-doors habit as much as possible. I asked a Scoutmaster once, in a great city, how he managed his Saturday hikes, whether in the park or in the country? He did not have them at all. Why not? Because his boys did not care about them. They preferred to come into the meeting room on Saturday afternoons! Of course they preferred it, poor little beggars; they were accustomed to being indoors. But that is what we are out to prevent in the Scouts — our object is to wean them from indoors and to make the outdoors attractive to them. Alexandre Dumas fils wrote:–
+It was very fresh and good, but, my wig, the air was not! It was, to say the least, "niffy." There was no ventilation. The boys were working like engines, but actually undoing their work by sucking in poison instead of strengthening their blood. Fresh air is half the battle towards producing results in physical exercises and it may advantageously be taken through the skin as well as through the nose when possible. Yes - that open air is the secret of success. It is what Scouting is for - to develop the out-of-doors habit as much as possible. I asked a Scoutmaster once, in a great city, how he managed his Saturday hikes, whether in the park or in the country? He did not have them at all. Why not? Because his boys did not care about them. They preferred to come into the meeting room on Saturday afternoons! Of course they preferred it, poor little beggars; they were accustomed to being indoors. But that is what we are out to prevent in the Scouts - our object is to wean them from indoors and to make the outdoors attractive to them. Alexandre Dumas fils wrote:–
 
-> If I were King of France I wouldn't allow any child of under twelve years to come into a town. Till then the youngsters would have to live in the open — out in the sun, in the fields, in the woods, in company with dogs and horses, face to face with nature, which strengthens the bodies, lends intelligence to the understanding, gives poetry to the soul, and rouses in them a curiosity which is more valuable to education than all the grammar books in the world.
+> If I were King of France I wouldn't allow any child of under twelve years to come into a town. Till then the youngsters would have to live in the open - out in the sun, in the fields, in the woods, in company with dogs and horses, face to face with nature, which strengthens the bodies, lends intelligence to the understanding, gives poetry to the soul, and rouses in them a curiosity which is more valuable to education than all the grammar books in the world.
 >
-> They would understand the noises as well as the silences of the night; they would have the best of religions — that which God himself reveals in the glorious sight of His daily wonders.
+> They would understand the noises as well as the silences of the night; they would have the best of religions - that which God himself reveals in the glorious sight of His daily wonders.
 >
 > And at twelve years of age, strong, high-minded and full of understand- ing, they would be capable of receiving the methodical instruction which it would then be right to give them, and whose inculcation would then be easily accomplished in four or five years.
 >
 > Unfortunately for the youngsters, though happily for France, I don't happen to be King.
 >
-> All that I can do is to give the advice and to suggest the way. The way is — make physical education of the child a first step in his life.
+> All that I can do is to give the advice and to suggest the way. The way is - make physical education of the child a first step in his life.
 
 In the Scouts especially, if we adhere to our proper metier, we ought to make a big step in this direction.
 
 The open-air is the real objective of Scouting, and the key to its success. But with too much town life we are apt to underlook our object and revert to type.
 
-We are not a club — nor a Sunday school — but a school of the woods. We must get more into the open for the health, whether of the body or the soul, of Scout and of Scoutmaster.
+We are not a club - nor a Sunday school - but a school of the woods. We must get more into the open for the health, whether of the body or the soul, of Scout and of Scoutmaster.
 
 The camp is what the boy looks forward to in Scouting, and is the Scoutmaster's great opportunity. The camp cannot fail to grip every boy with its outdoor life and taste of the wild, with its improvised cooking expedients, the games over woodland or moor, the tracking, the path-finding, the pioneering, the minor hardships and the jolly camp fire sing songs.
 
 We want open-air space, grounds of our own, preferably permanent camp grounds easily accessible for the use of Scouts. As the Movement grows these should form regular institutions at all centres of Scouting.
 
-Besides serving this great purpose such camps would have a double value. They could form centres of instruction for officers, where they could receive training in camp craft and Nature lore, and above all could imbibe the spirit of the out-of-doors — the Brotherhood of the Backwoods.
+Besides serving this great purpose such camps would have a double value. They could form centres of instruction for officers, where they could receive training in camp craft and Nature lore, and above all could imbibe the spirit of the out-of-doors - the Brotherhood of the Backwoods.
 
 In the past years many such grounds have been acquired, for use as Training Grounds for Scouters, and Camping Grounds for Scouts. These permanent grounds have well proved their value for camp life, but we want more and that soon before all the ground round our cities has been bought up for building purposes.
 
@@ -131,7 +131,7 @@ I was shown a pattern school boy camp not long ago where there were rows of tent
 
 My only complaint about it was that it wasn't camping. **Living under canvas** is a very different thing from **camping**. Any ass, so to speak, can live under canvas where he is one of a herd with everything done for him; but he might just as well stop at home for all the good it is likely to do him.
 
-In Scouting we know that what appeals to the boys, and is at the same time an education for them, is real camping — that is, where they prepare their own encampment even to the extent of previously making their own tents and learning to cook their own food.
+In Scouting we know that what appeals to the boys, and is at the same time an education for them, is real camping - that is, where they prepare their own encampment even to the extent of previously making their own tents and learning to cook their own food.
 
 ![Camp is essential to the successful training of a Troop. But the camp must be a busy one and not a school for aimless loafin](images/camp.jpg)
 
@@ -141,7 +141,7 @@ Where you have a large number of boys in a canvas town you are forced to have dr
 
 My ideal camp is one where everybody is cheery and busy, where the Patrols are kept intact under all circumstances, and where every Patrol Leader and Scout takes a genuine pride in his camp and his gadgets.
 
-In a small camp so very much can be done through the example of the Scout- master. You are living among your boys and are watched by each of them, and imitated unconsciously by them, and probably unobserved by yourself. If you are lazy they will be lazy; if you make cleanliness a hobby it will be- come theirs; if you are clever at devising camp accessories, they will become rival inventors, and so on. But don't do too much of what should be done by the boys themselves, see that they do it — "when you want a thing done don't do it yourself" is the right motto. We want not only really healthy and clean camps, carried out in accordance with the local instructions, but camps where the boys can employ the nearest approach to a backwoodsman life and adventure.
+In a small camp so very much can be done through the example of the Scout- master. You are living among your boys and are watched by each of them, and imitated unconsciously by them, and probably unobserved by yourself. If you are lazy they will be lazy; if you make cleanliness a hobby it will be- come theirs; if you are clever at devising camp accessories, they will become rival inventors, and so on. But don't do too much of what should be done by the boys themselves, see that they do it - "when you want a thing done don't do it yourself" is the right motto. We want not only really healthy and clean camps, carried out in accordance with the local instructions, but camps where the boys can employ the nearest approach to a backwoodsman life and adventure.
 
 ## Swimming, Boating, Signalling
 
@@ -173,7 +173,7 @@ Cleanliness inside as well as out is of prime importance to health. That rub dow
 
 ### Food
 
-Food is an all-important consideration for the growing lad, yet there is a vast amount of ignorance on the subject on the part of parents, and, therefore, on the part of the boys. It is helpful towards the energy and health of his boys — especially in camp that the Scoutmaster should know something about the matter.
+Food is an all-important consideration for the growing lad, yet there is a vast amount of ignorance on the subject on the part of parents, and, therefore, on the part of the boys. It is helpful towards the energy and health of his boys - especially in camp that the Scoutmaster should know something about the matter.
 
 As regards quantity, a boy between thirteen and fifteen requires about 80 per cent of a man's allowance. He will gladly put down 150 per cent if permitted.
 
@@ -197,15 +197,15 @@ The very fact that the subject is taboo between the boy and grown-ups is provoca
 
 > The sexual development of boys is gradual, and it is an unfortunate fact that habits of abuse are begun and constantly practised at a much younger age. If safety lies in the adage that ?to be forewarned is to be forearmed,' then boys must be told what is coming to them, for the critical period of puberty lies ahead of them, and no boy should be allowed to reach it in ignorance.
 
-A Scoutmaster has here a tremendous field for good. He must in the first instance ascertain whether the father of the boy has any objection to his talking to him on the subject, He will do well also to consult with those who know the boy — Pastor, Doctor, Schoolmaster, and to realise that he himself must be possessed of sufficient experience, knowledge and character in order to be in a position to be of real help to the boy.
+A Scoutmaster has here a tremendous field for good. He must in the first instance ascertain whether the father of the boy has any objection to his talking to him on the subject, He will do well also to consult with those who know the boy - Pastor, Doctor, Schoolmaster, and to realise that he himself must be possessed of sufficient experience, knowledge and character in order to be in a position to be of real help to the boy.
 
 Then he will best enter into it in a matter-of-fact way among other subjects on which he may be advising him, placing himself on the footing of an elder brother in doing so. To some Scoutmasters who have never done it the question seems a very difficult one to approach. It is in reality as easy as shelling peas. And the value of it cannot be exaggerated.
 
 Personally, apart from explaining as a preliminary how plants, and fishes, and animals reproduce their species, I have found it appeal to boys, as it did to me when I first heard it, to tell them how in every boy is growing the germ of another child to come from him. That germ has been handed down to him from father to son from generations back. He has it in trust from God; it is his duty to keep it until he is married and passes it to his wife for reproduction. He cannot honourably forget his charge and throw it away in the meantime. Temptation will come to him in many forms to do so, but he has got to be strong and to guard it.
 
-Every different boy at each age may need a different way of treatment in the matter. The main thing is for the Scoutmaster to have the lad's full confidence as a first step, and to be to him in the relation of an elder brother — where both can speak quite openly.
+Every different boy at each age may need a different way of treatment in the matter. The main thing is for the Scoutmaster to have the lad's full confidence as a first step, and to be to him in the relation of an elder brother - where both can speak quite openly.
 
-At the same time it is necessary for me to add a word of warning to young and inexperienced Scouters. The fact that they are nearer the boy in age is not necessarily an advantage. Frequently it is a handicap and sometimes a real danger. From what I have written in the past on this subject, an impression has gone abroad that I consider it to be the duty of every Scoutmaster to enlighten each of his Scouts on this subject. That has never been my intention. It would upset the whole fabric of the family system to do so. What I do desire to do is to direct the attention of Scoutmasters to the question and to ask them to try and see that their Scouts receive enlightenment from the right person at the right time. *More frequently than not the right person is the Parent, Pastor, Doctor or another — NOT the Scoutmaster.*
+At the same time it is necessary for me to add a word of warning to young and inexperienced Scouters. The fact that they are nearer the boy in age is not necessarily an advantage. Frequently it is a handicap and sometimes a real danger. From what I have written in the past on this subject, an impression has gone abroad that I consider it to be the duty of every Scoutmaster to enlighten each of his Scouts on this subject. That has never been my intention. It would upset the whole fabric of the family system to do so. What I do desire to do is to direct the attention of Scoutmasters to the question and to ask them to try and see that their Scouts receive enlightenment from the right person at the right time. *More frequently than not the right person is the Parent, Pastor, Doctor or another - NOT the Scoutmaster.*
 
 ### Non-Smoking
 
@@ -227,4 +227,4 @@ As I have already indicated, character is concerned in such exercises too, and t
 
 Through Scouting there are numbers of crippled, deaf and dumb, and blind boys now gaining greater health, happiness and hope than they ever had before. Most of these boys are unable to pass all the ordinary Scout tests, and are supplied with special, or alternative tests.
 
-Many of these boys are by no means easy to deal with, and demand far more patience and individual attention than ordinary boys. But the result is well worth it. The testimony of doctors, matrons, nurses and teachers — who in the majority of cases are not Scouts themselves — to the good done to the boys, and through the boys to the Institutions, by Scouting, is overwhelming. The wonderful thing about such boys is their cheeriness and their eagerness to do as much in Scouting as they possibly can. They do not want more special tests and treatment than is absolutely necessary. Scouting helps them by associating them in a world-wide brotherhood, by giving them something to do and to look forward to, by giving them an opportunity to prove to themselves and to others that they can do things — and difficult things too — for themselves.
+Many of these boys are by no means easy to deal with, and demand far more patience and individual attention than ordinary boys. But the result is well worth it. The testimony of doctors, matrons, nurses and teachers - who in the majority of cases are not Scouts themselves - to the good done to the boys, and through the boys to the Institutions, by Scouting, is overwhelming. The wonderful thing about such boys is their cheeriness and their eagerness to do as much in Scouting as they possibly can. They do not want more special tests and treatment than is absolutely necessary. Scouting helps them by associating them in a world-wide brotherhood, by giving them something to do and to look forward to, by giving them an opportunity to prove to themselves and to others that they can do things - and difficult things too - for themselves.

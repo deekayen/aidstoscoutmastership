@@ -12,7 +12,7 @@ Then, through emulation and competition between Patrols, you produce a Patrol sp
 
 ![The best progress is made in those Troops where power and responsibility are really put into the hands of the Patrol Leaders. This is the Secret of success in Scout Training.](images/duo.jpg)
 
-## Patrol Leaders' Council — Court of Honour
+## Patrol Leaders' Council - Court of Honour
 
 The Patrol Leaders' Council and Court of Honour is an important part of the Patrol System. It is a standing committee which, under the guidance of the Scoutmaster, settles the affairs of the Troop, both administrative and disciplinary. It develops in its members self-respect, ideals of freedom coupled with a sense of responsibility and respect for authority, while it gives practice in procedure such as is invaluable to the boys individually and collectively as future citizens.
 
@@ -24,7 +24,7 @@ It is important that the Scoutmaster recognise the extraordinary value which he 
 
 But first and foremost: **The Patrol is the character school for the individual**. To the Patrol Leader it gives practise in Responsibility and in the qualities of Leadership. To the Scouts it gives subordination of self to the interests of the whole, the elements of self-denial and self-control involved in the team spirit of cooperation and good comradeship.
 
-But to get first-class results from this system you have to give the boy leaders real free-handed responsibility — if you only give partial responsibility you will only get partial results. The main object is not so much saving the Scoutmaster trouble as to give responsibility to the boy, since this is the very best of all means for developing character.
+But to get first-class results from this system you have to give the boy leaders real free-handed responsibility - if you only give partial responsibility you will only get partial results. The main object is not so much saving the Scoutmaster trouble as to give responsibility to the boy, since this is the very best of all means for developing character.
 
 The Scoutmaster who hopes for success must not only study what is written about the Patrol System and its methods, but must put into practice the suggestions he reads. It is the doing of things that is so important, and only by constant trial can experience be gained by his Patrol Leaders and Scouts. The more he gives them to do, the more will they respond, the more strength and character will they achieve.
 
@@ -34,7 +34,7 @@ I have often said, "I don't care a fig whether a Scout wears a uniform or not so
 
 The spirit prompts him to it.
 
-The same rule applies naturally to those who carry on the Scout Movement — the Scoutmasters and Commissioners; there is no obligation on them to wear uniform if they don't like it. At the same time, they have in their positions to think of others rather than of themselves.
+The same rule applies naturally to those who carry on the Scout Movement - the Scoutmasters and Commissioners; there is no obligation on them to wear uniform if they don't like it. At the same time, they have in their positions to think of others rather than of themselves.
 
 Personally, I put on uniform, even if I have only a Patrol to inspect, because I am certain that it raises the moral tone of the boys. It heightens their estimation of their uniform when they see it is not beneath a grown man to wear it; it heightens their estimation of themselves when they find themselves taken seriously by men who also count it of importance to be in the same brotherhood with them.
 

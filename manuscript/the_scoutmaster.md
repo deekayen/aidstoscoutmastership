@@ -4,7 +4,7 @@
 
 The Scoutmaster guides the boy in the spirit of an older brother.
 
-As a preliminary word of comfort to intending Scout masters, I should like to contradict the usual misconception that, to be a successful Scoutmaster, a man must be an Admirable Crichton — a know-all. Not a bit of it.
+As a preliminary word of comfort to intending Scout masters, I should like to contradict the usual misconception that, to be a successful Scoutmaster, a man must be an Admirable Crichton - a know-all. Not a bit of it.
 
 He has simply to be a boy-man, that is:–
 
@@ -17,7 +17,7 @@ He has got to put himself on the level of the older brother, that is, to see thi
 
 Regarding the second point, the various handbooks cover the successive phases of adolescent life.
 
-Thirdly, the business of the Scoutmaster — and a very interesting one it is — is to draw out each boy and find out what is in him, and then to catch hold of the good and develop it to the exclusion of the bad. There is five per cent of good even in the worst character. The sport is to find it, and then to develop it on to an 80 or 90 per cent basis. This is education instead of instruction of the young mind.
+Thirdly, the business of the Scoutmaster - and a very interesting one it is - is to draw out each boy and find out what is in him, and then to catch hold of the good and develop it to the exclusion of the bad. There is five per cent of good even in the worst character. The sport is to find it, and then to develop it on to an 80 or 90 per cent basis. This is education instead of instruction of the young mind.
 
 Fourth. In the Scout training the Patrol or gang system gives the corporate expression of the individual training, which brings into practice all that the boy has been taught.
 
@@ -27,11 +27,11 @@ The Patrol System has also a great character-training value if it is used aright
 
 Success in training the boy largely depends upon the Scoutmaster's own personal example. It is easy to become the hero as well as the elder brother of the boy. We are apt, as we grow up, to forget what a store of hero worship is in the boy.
 
-The Scoutmaster who is a hero to his boys holds a powerful lever to their devel- opment, but at the same time brings a great responsibility on himself. They are quick enough to see the smallest characteristic about him, whether it be a virtue or a vice. His mannerisms become theirs, the amount of courtesy he shows, his irrita- tions, his sunny happiness, or his impatient glower, his willing self-discipline or his occasional moral lapses — all are not only noticed, but adopted by his followers.
+The Scoutmaster who is a hero to his boys holds a powerful lever to their devel- opment, but at the same time brings a great responsibility on himself. They are quick enough to see the smallest characteristic about him, whether it be a virtue or a vice. His mannerisms become theirs, the amount of courtesy he shows, his irrita- tions, his sunny happiness, or his impatient glower, his willing self-discipline or his occasional moral lapses - all are not only noticed, but adopted by his followers.
 
 Therefore, to get them to carry out the Scout Law and all that underlies it, the Scoutmaster himself should scrupulously carry out its professions in every detail of his life. With scarcely a word of instruction his boys will follow him.
 
-The Scoutmaster's job is like golf, or scything, or fly-fishing. If you "press" you don't get there, at least not with anything like the extent you do by a light-hearted effortless swing. But you have got to swing. It's no use standing still. It is one thing or the other, either progress or relax. Let us progress — and with a smile on.
+The Scoutmaster's job is like golf, or scything, or fly-fishing. If you "press" you don't get there, at least not with anything like the extent you do by a light-hearted effortless swing. But you have got to swing. It's no use standing still. It is one thing or the other, either progress or relax. Let us progress - and with a smile on.
 
 ## Loyalty to the Movement
 
@@ -59,6 +59,6 @@ So, in dealing with the Scouts, you are bound to meet with disappointments and s
 
 The satisfaction which comes of having tried to do one's duty at the cost of self-denial, and of having developed characters in the boys which will give them a different status for life, brings such a reward as cannot well be set down in writing. The fact of having worked to prevent the recurrence of those evils which, if allowed to run on, would soon be rotting our youth, gives a man the solid comfort that he has done something, at any rate, for his country, however humble may be his position.
 
-This is the spirit with which Scoutmasters and Commissioners, Committeemen, instructors, organisers and secretaries — the word "Scouter" describes them all — work in the Boy Scout Movement.
+This is the spirit with which Scoutmasters and Commissioners, Committeemen, instructors, organisers and secretaries - the word "Scouter" describes them all - work in the Boy Scout Movement.
 
 The credit for the Organisation and the spread of the Scout Movement is due to this army of voluntary workers. Here we have remarkable if silent evidence of the fine patriotic spirit that lies beneath the surface of most nations. These men give up their time and energies, and in many cases their money as well, to the work of organising the training of boys, without any idea of reward or praise for what they are doing, they do it for the love of their country and their kind.

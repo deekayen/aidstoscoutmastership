@@ -14,19 +14,19 @@ It is well to recall, so far as possible, what your ideas were when a boy yourse
 
 The following qualities in the boy have to be taken into consideration:
 
-* Humour. — It must be remembered that a boy is naturally full of humour; it may be on the shallow side, but he can always appreciate a joke and see the funny side of things. And this at once gives the worker with boys a pleasant and bright side to his work and enables him to become the cheery companion, instead of the taskmaster, if he only joins in the fun of it.
-* Courage. — The average boy generally manages to have pluck as well. He is not by nature a grumbler, though later on he may become one, when his self-respect has died out of him and when he has been much in the company of "grousers."
-* Confidence. — A boy is generally supremely confident in his own powers. There- fore, he dislikes being treated as a child and being told to do things or how to do them. He would much rather try for himself, even though it may lead him into blunders, but it is just by making mistakes that a boy gains experience and makes his character.
-* Sharpness. — A boy is generally as sharp as a needle. It is easy to train him in matters appertaining to observation and noticing things and deducing their meaning.
-* Love of Excitement. — The town boy is generally more unsettled than his country brothers by the excitements of the town, whether they are "a passing fire engine, or a good fight between two of his neighbours." He cannot stick at a job for more than a month or two because he wants change.
-* Responsiveness. — When a boy finds somebody who takes an interest in him he responds and follows where he is led, and it is here that hero-worship comes in as a great force for helping the Scoutmaster.
-* Loyalty. — This is a feature in a boy's character that must inspire boundless hope. Boys are usually loyal friends to each other, and thus friendliness comes almost naturally to a boy. It is the one duty that he understands. He may appear selfish outwardly, but, as a general rule, he is very willing under the surface to be helpful to others, and that is where our Scout training finds good soil to work upon.
+* Humour. - It must be remembered that a boy is naturally full of humour; it may be on the shallow side, but he can always appreciate a joke and see the funny side of things. And this at once gives the worker with boys a pleasant and bright side to his work and enables him to become the cheery companion, instead of the taskmaster, if he only joins in the fun of it.
+* Courage. - The average boy generally manages to have pluck as well. He is not by nature a grumbler, though later on he may become one, when his self-respect has died out of him and when he has been much in the company of "grousers."
+* Confidence. - A boy is generally supremely confident in his own powers. There- fore, he dislikes being treated as a child and being told to do things or how to do them. He would much rather try for himself, even though it may lead him into blunders, but it is just by making mistakes that a boy gains experience and makes his character.
+* Sharpness. - A boy is generally as sharp as a needle. It is easy to train him in matters appertaining to observation and noticing things and deducing their meaning.
+* Love of Excitement. - The town boy is generally more unsettled than his country brothers by the excitements of the town, whether they are "a passing fire engine, or a good fight between two of his neighbours." He cannot stick at a job for more than a month or two because he wants change.
+* Responsiveness. - When a boy finds somebody who takes an interest in him he responds and follows where he is led, and it is here that hero-worship comes in as a great force for helping the Scoutmaster.
+* Loyalty. - This is a feature in a boy's character that must inspire boundless hope. Boys are usually loyal friends to each other, and thus friendliness comes almost naturally to a boy. It is the one duty that he understands. He may appear selfish outwardly, but, as a general rule, he is very willing under the surface to be helpful to others, and that is where our Scout training finds good soil to work upon.
 
 If one considers and studies these different attributes in the boy one is in a far better position for adapting the training to suit his different propensities. Such study is the first step to making a success of the training. I had the pleasure, during one single week, of coming across three boys in different centres who were pointed out to me as having been incorrigible young blackguards and hooligans until they came under the influence of Scouting. Their respective Scoutmasters had, in each case, found out the good points which underlay the bad ones in them, and having seized upon these had put the boys on to jobs which suited their peculiar temperaments; and there are now these three, fine hulking lads, each of them doing splendid work, entirely transformed in character from their old selves. It was worth the trouble of having organised the Troops just to have had these single successes.
 
 Mr. Casson, writing in the magazine Teachers' World, thus describes that complicated work of understanding the Nature of the boy:–
 
-> Judging from my own experience, I would say that boys have a world of their own — a world that they make for themselves; and neither the teacher nor the lessons are admitted to this world. A boy's world has its own events and standards and code and gossip and public opinion.
+> Judging from my own experience, I would say that boys have a world of their own - a world that they make for themselves; and neither the teacher nor the lessons are admitted to this world. A boy's world has its own events and standards and code and gossip and public opinion.
 >
 > ![Remember that the boy, on joining, wants to begin scouting right away; so don’t dull his keenness by too much preliminary explanation at first. Meet his wants by games and Scouting practices, and instill elementary details bit by bit afterwards as you go.](images/hiking_stick.jpg)
 >
@@ -36,11 +36,11 @@ Mr. Casson, writing in the magazine Teachers' World, thus describes that complic
 >
 > Fun, fighting, and feeding! These are the three indispensable elements of the boy's world. These are basic. They are what boys are in earnest about; and they are not associated with teachers nor schoolbooks.
 >
-> According to public opinion in Boydom, to sit for four hours a day at a desk indoors is a wretched waste of time and daylight. Did anyone ever know a boy — a normal healthy boy, who begged his father to buy him a desk? Or did anyone ever know a boy, who was running about outdoors, go and plead with his mother to be allowed to sit down in the drawing room?
+> According to public opinion in Boydom, to sit for four hours a day at a desk indoors is a wretched waste of time and daylight. Did anyone ever know a boy - a normal healthy boy, who begged his father to buy him a desk? Or did anyone ever know a boy, who was running about outdoors, go and plead with his mother to be allowed to sit down in the drawing room?
 >
 > Certainly not. A boy is not a desk animal. He is not a sitting-down animal. Neither is he a pacifist nor a believer in safety first; nor a book-worm, nor a philosopher.
 >
-> He is a boy — God bless him — full to the brim of fun and fight and hunger and daring mischief and noise and observation and excitement. If he is not, he is abnormal.
+> He is a boy - God bless him - full to the brim of fun and fight and hunger and daring mischief and noise and observation and excitement. If he is not, he is abnormal.
 >
 > Let the battle go on between the code of the teachers and the code of the boys. The boys will win in the future as they have in the past. A few will surrender and win the scholarships, but the vast majority will persist in rebellion and grow up to be the ablest and noblest men in the nation.
 >
@@ -82,7 +82,7 @@ Natural lying is another very prevalent fault amongst lads; and, unfortunately, 
 
 ## Troop Headquarters and Camp
 
-The main antidote to a bad environment is naturally the substitution of a good one, and this is best done through the Troop Headquarters and the Scout Camp. By Headquarters I do not mean halfan-hour's drill once a week in a big schoolroom lent for the occasion — which has so often appeared to be the aim of those dealing with boys — but a real place which the boys feel is their own, even though it may be a cellar or an attic; some place to which they can resort every evening, if need be, and find congenial work and amusement, plenty of varied activity and a bright and happy atmosphere. If a Scoutmaster can only arrange this, he will have done a very good work in providing the right environment for some of his lads which will be the best antidote for the poison that otherwise would creep into their minds and characters.
+The main antidote to a bad environment is naturally the substitution of a good one, and this is best done through the Troop Headquarters and the Scout Camp. By Headquarters I do not mean halfan-hour's drill once a week in a big schoolroom lent for the occasion - which has so often appeared to be the aim of those dealing with boys - but a real place which the boys feel is their own, even though it may be a cellar or an attic; some place to which they can resort every evening, if need be, and find congenial work and amusement, plenty of varied activity and a bright and happy atmosphere. If a Scoutmaster can only arrange this, he will have done a very good work in providing the right environment for some of his lads which will be the best antidote for the poison that otherwise would creep into their minds and characters.
 
 ![What the Scoutmaster does, his boys will do. The Scoutmaster is reflected in his Scouts. From self-scrifice and patriotism of their Scoutmaster,   Scouts inhert the practice of voluntary self-scrifice and patriotic service.](images/log.jpg)
 
@@ -94,7 +94,7 @@ Then the camp (and this should be as frequent as possibly can be managed) is a s
 
 I like to think of a man trying to get boys to come under good influence as a fisherman wishful to catch fish.
 
-If a fisherman bait his hook with the kind Of food that he likes himself it is probable that he will not catch many — certainly not the shy, game kind of fish. He therefore uses as bait the food that the fish likes.
+If a fisherman bait his hook with the kind Of food that he likes himself it is probable that he will not catch many - certainly not the shy, game kind of fish. He therefore uses as bait the food that the fish likes.
 
 So with boys; if you try to preach to them what you consider elevating matter, you won't catch them. Any obvious "goody-goody" will scare away the more spirited among them, and those are the ones you want to get hold of. The only way is to hold out something that really attracts and interests them. And I think you will find that Scouting does this.
 
@@ -102,4 +102,4 @@ You can afterwards season it with what you want them to have.
 
 To get a hold on your boys you must be their friend; but don't be in too great a hurry at first to gain this footing until they have got over their shyness of you. Mr. F. D. How, in his Book of the Child, sums up the right course in the following story:–
 
-> A man whose daily walk led him down a certain dingy street saw a tiny boy with grimy face and badly-developed limbs playing with a banana- skin in the gutter. The man nodded to him — the boy shrank away in terror. Next day the man nodded again. The boy had decided there was nothing to be afraid of, and spat at the man. Next day the little fellow only stared. The day after he shouted ?Hi!' as the man went on. In time the little fellow smiled back at the greeting which he now began to expect. Finally, the triumph was complete when the boy — a tiny chap — was waiting at the corner and seized the man's fingers in his dirty little fist. It was a dismal street, but it became one of the very brightest spots in all that man's life.
+> A man whose daily walk led him down a certain dingy street saw a tiny boy with grimy face and badly-developed limbs playing with a banana- skin in the gutter. The man nodded to him - the boy shrank away in terror. Next day the man nodded again. The boy had decided there was nothing to be afraid of, and spat at the man. Next day the little fellow only stared. The day after he shouted ?Hi!' as the man went on. In time the little fellow smiled back at the greeting which he now began to expect. Finally, the triumph was complete when the boy - a tiny chap - was waiting at the corner and seized the man's fingers in his dirty little fist. It was a dismal street, but it became one of the very brightest spots in all that man's life.

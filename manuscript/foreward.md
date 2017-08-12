@@ -6,7 +6,7 @@ The term "Scouting" has come to mean a system of training in citizenship, throug
 
 The girls are the important people, because when the mothers of the nation are good citizens and women of character, they will see to it that their sons are not deficient in these points. As things are, the training is needed for both sexes, and is imparted through the Boy Scouts and Girl Guides (Girl Scouts) Movements. The principles are the same for both. It is only in the details that they vary.
 
-A.S.M. Hutchinson in one of his novels suggests that what Youth needs is Back- ground. Well, we have a Background to give them in Scouting and Guiding, and it is the Background that God has provided for everybody — the open-air, happiness and usefulness.
+A.S.M. Hutchinson in one of his novels suggests that what Youth needs is Back- ground. Well, we have a Background to give them in Scouting and Guiding, and it is the Background that God has provided for everybody - the open-air, happiness and usefulness.
 
 Indeed, the Scoutmaster in introducing the boy to this, incidentally brings upon himself a share in that same happiness and usefulness. He finds himself doing a greater thing than possibly he foresaw in taking up the job, for he finds himself rendering a life-worth Service for Man and God. You will find this book a disappointing one if you hope to find in it a set of definite stepping-stones to complete knowledge.
 
