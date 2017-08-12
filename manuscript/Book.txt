@@ -3,7 +3,6 @@ foreward.md
 mainmatter.txt
 the_scoutmaster.md
 the_boy.md
-scouting.md
 the_patrol_system.md
 character.md
 handicraft_and_skill.md
