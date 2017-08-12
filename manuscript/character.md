@@ -40,7 +40,7 @@ So, let us consider a few of the qualities, moral and mental that go to make **C
 
 The code of the medieval knights has been the foundation for the conduct of gen- tlemen ever since the day around A.D. 500, when King Arthur made the rules for his Knights of the Round Table. The romance of the Knights has its attraction for all boys and has its appeal to their moral sense. Their Code of Chivalry included Honour, Self-Discipline, Courtesy, Courage, Selfless Sense of Duty and Service, and the guidance of Religion.
 
-The rules as they were republished in the time of Henry VII are as follow:–
+The rules as they were republished in the time of Henry VII are as follow:-
 
 1. They were never to put off their armour, except for the purpose of rest at night.
 2. They were to search for adventures wherein to attain "bruyt and renown."
@@ -119,13 +119,13 @@ Therefore, it is most advisable that Scoutmasters who have not had much experien
 
 Why is Nature Lore considered a Key Activity in Scouting? That is a question on which hangs the difference between Scout work and that of the ordinary boys' club. It is easily answered in the phrase: "We want to teach our boys not merely how to get a living, but how to live" - that is, in the higher sense, how to enjoy life. Nature lore, as I have probably insisted only too often, gives the best means of opening out the minds and thoughts of boys, and at the same time, if the point is not lost sight of by their Scoutmaster, it gives them the power of appreciating beauty in nature, and consequently in art, such as leads them to a higher enjoyment of life. This is in addition to the realisation of God the Creator through His wondrous work, which when coupled with active performance of His will in service for others constitutes the concrete foundation of religion.
 
-Some years ago I was in the sitting-room of a friend who had just died, and lying on the table beside his abandoned pipe and tobacco pouch was a book by Richard Jefferies-Field and Hedgerow, in which a page was turned down which said:–
+Some years ago I was in the sitting-room of a friend who had just died, and lying on the table beside his abandoned pipe and tobacco pouch was a book by Richard Jefferies-Field and Hedgerow, in which a page was turned down which said:-
 
 > The conception of moral good is not altogether satisfying. The highest form known to us at present is pure unselfishness, the doing of good not for any reward now or hereafter, nor for the completion of any imaginary scheme. That is the best we know, but how unsatisfactory! An outlet is needed more fully satisfying to the heart's inmost desire than is afforded by any labour of selfabnegation. It must be something in accord with the perception of beauty and of an ideal. Personal virtue is not enough. Though I cannot name the ideal good it seems to me that it will in some way be closely associated with the ideal beauty of Nature.
 
 In other words, one may suggest that happiness is a matter of inner conscience and outward sense working in combination. It is to be got where the conscience as well as the senses together are satisfied. If the above quoted definition be true, the converse is at least equally certain - namely, that the appreciation of beauty cannot bring happiness if your conscience is not at rest. So that if we want our boys to gain happiness in life we must put into them the practice of doing good to their neighbours, and in addition, the appreciation of the beautiful in Nature.
 
-The shortest step to this last is through Nature lore:– ... books in the running brooks, Sermons in stones, and good in everything.
+The shortest step to this last is through Nature lore:- ... books in the running brooks, Sermons in stones, and good in everything.
 
 Among the mass of boys their eyes have never been opened, and to the Scoutmaster is given the joy of bringing about this worth-while operation.
 
@@ -153,7 +153,7 @@ Reverence to God and reverence for one's neighbour and reverence for oneself as 
 
 There may be many difficulties relating to the definition of the religious training in our Movement where so many different denominations exist, and the details of the expression of duty to God have, therefore, to be left largely in the hands of the local authority. But there is no difficulty at all in suggesting the line to take on the human side, since direct duty to one's neighbour is implied in almost every form of belief.
 
-The following is the attitude of the Scout Movement as regards religion, approved by the heads of all the different denominations on our Council:–
+The following is the attitude of the Scout Movement as regards religion, approved by the heads of all the different denominations on our Council:-
 
 (a) It is expected that every Scout shall belong to some religious denomination, and attend its services.
 (b) Where a Troop is composed of members of one particular form of religion, it is hoped that the Scoutmaster will arrange such denomi- national religious observances and instruction as he, in consultation with its Chaplain or other religious authority, may consider best.
@@ -185,7 +185,7 @@ Other Troops in slums and less-chance areas have lads of practically no religion
 
 Here, again, Scouting comes very practically to the aid of the teacher, and has already given extraordinarily good results.
 
-The way in which Scouting can help is through the following:–
+The way in which Scouting can help is through the following:-
 
 (a) Personal example of the Scoutmaster.
 

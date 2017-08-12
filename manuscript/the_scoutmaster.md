@@ -6,7 +6,7 @@ The Scoutmaster guides the boy in the spirit of an older brother.
 
 As a preliminary word of comfort to intending Scout masters, I should like to contradict the usual misconception that, to be a successful Scoutmaster, a man must be an Admirable Crichton - a know-all. Not a bit of it.
 
-He has simply to be a boy-man, that is:–
+He has simply to be a boy-man, that is:-
 
 1. He must have the boy spirit in him; and must be able to place himself on a right plane with his boys as a first step.
 2. He must realise the needs, outlooks and desires of the different ages of boy life.

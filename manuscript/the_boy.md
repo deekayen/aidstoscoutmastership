@@ -24,7 +24,7 @@ The following qualities in the boy have to be taken into consideration:
 
 If one considers and studies these different attributes in the boy one is in a far better position for adapting the training to suit his different propensities. Such study is the first step to making a success of the training. I had the pleasure, during one single week, of coming across three boys in different centres who were pointed out to me as having been incorrigible young blackguards and hooligans until they came under the influence of Scouting. Their respective Scoutmasters had, in each case, found out the good points which underlay the bad ones in them, and having seized upon these had put the boys on to jobs which suited their peculiar temperaments; and there are now these three, fine hulking lads, each of them doing splendid work, entirely transformed in character from their old selves. It was worth the trouble of having organised the Troops just to have had these single successes.
 
-Mr. Casson, writing in the magazine Teachers' World, thus describes that complicated work of understanding the Nature of the boy:–
+Mr. Casson, writing in the magazine Teachers' World, thus describes that complicated work of understanding the Nature of the boy:-
 
 > Judging from my own experience, I would say that boys have a world of their own - a world that they make for themselves; and neither the teacher nor the lessons are admitted to this world. A boy's world has its own events and standards and code and gossip and public opinion.
 >
@@ -100,6 +100,6 @@ So with boys; if you try to preach to them what you consider elevating matter, y
 
 You can afterwards season it with what you want them to have.
 
-To get a hold on your boys you must be their friend; but don't be in too great a hurry at first to gain this footing until they have got over their shyness of you. Mr. F. D. How, in his Book of the Child, sums up the right course in the following story:–
+To get a hold on your boys you must be their friend; but don't be in too great a hurry at first to gain this footing until they have got over their shyness of you. Mr. F. D. How, in his Book of the Child, sums up the right course in the following story:-
 
 > A man whose daily walk led him down a certain dingy street saw a tiny boy with grimy face and badly-developed limbs playing with a banana- skin in the gutter. The man nodded to him - the boy shrank away in terror. Next day the man nodded again. The boy had decided there was nothing to be afraid of, and spat at the man. Next day the little fellow only stared. The day after he shouted ?Hi!' as the man went on. In time the little fellow smiled back at the greeting which he now began to expect. Finally, the triumph was complete when the boy - a tiny chap - was waiting at the corner and seized the man's fingers in his dirty little fist. It was a dismal street, but it became one of the very brightest spots in all that man's life.

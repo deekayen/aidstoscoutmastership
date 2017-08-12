@@ -58,7 +58,7 @@ We in the Scouts can show every boy - town or country - how to be a player of ga
 
 ## Physical Exercises
 
-Physical exercises are an intensive form of development where you cannot get good or frequent opportunity of games, and may well be used in addition to games, provided that:–
+Physical exercises are an intensive form of development where you cannot get good or frequent opportunity of games, and may well be used in addition to games, provided that:-
 
 1. They are not made entirely a drill, but something that each boy can really understand and want to practise for himself because of the good that he knows it does him.
 2. The instructor has some knowledge of anatomy and the possible harm of many physical drill movements on the young unformed body. The six body exercises given in Scouting for Boys can be taught without any danger to the lad by Scoutmasters who are not experts in anatomy, etc. (These exercises should be done by the Scout himself - once he has learned the proper actions and breathing - at his own time, at home, and should not become a routine part of a Troop meeting.)
@@ -99,7 +99,7 @@ But, after all, natural games, plenty of fresh air, wholesome food, and adequate
 
 Oxygen for Ox's Strength. - I once saw some very smart physical drill by a Scout Troop in their headquarters.
 
-It was very fresh and good, but, my wig, the air was not! It was, to say the least, "niffy." There was no ventilation. The boys were working like engines, but actually undoing their work by sucking in poison instead of strengthening their blood. Fresh air is half the battle towards producing results in physical exercises and it may advantageously be taken through the skin as well as through the nose when possible. Yes - that open air is the secret of success. It is what Scouting is for - to develop the out-of-doors habit as much as possible. I asked a Scoutmaster once, in a great city, how he managed his Saturday hikes, whether in the park or in the country? He did not have them at all. Why not? Because his boys did not care about them. They preferred to come into the meeting room on Saturday afternoons! Of course they preferred it, poor little beggars; they were accustomed to being indoors. But that is what we are out to prevent in the Scouts - our object is to wean them from indoors and to make the outdoors attractive to them. Alexandre Dumas fils wrote:–
+It was very fresh and good, but, my wig, the air was not! It was, to say the least, "niffy." There was no ventilation. The boys were working like engines, but actually undoing their work by sucking in poison instead of strengthening their blood. Fresh air is half the battle towards producing results in physical exercises and it may advantageously be taken through the skin as well as through the nose when possible. Yes - that open air is the secret of success. It is what Scouting is for - to develop the out-of-doors habit as much as possible. I asked a Scoutmaster once, in a great city, how he managed his Saturday hikes, whether in the park or in the country? He did not have them at all. Why not? Because his boys did not care about them. They preferred to come into the meeting room on Saturday afternoons! Of course they preferred it, poor little beggars; they were accustomed to being indoors. But that is what we are out to prevent in the Scouts - our object is to wean them from indoors and to make the outdoors attractive to them. Alexandre Dumas fils wrote:-
 
 > If I were King of France I wouldn't allow any child of under twelve years to come into a town. Till then the youngsters would have to live in the open - out in the sun, in the fields, in the woods, in company with dogs and horses, face to face with nature, which strengthens the bodies, lends intelligence to the understanding, gives poetry to the soul, and rouses in them a curiosity which is more valuable to education than all the grammar books in the world.
 >
@@ -147,7 +147,7 @@ In a small camp so very much can be done through the example of the Scout- maste
 
 ### Swimming
 
-The advantages of swimming among many other forms of physical training are these:–
+The advantages of swimming among many other forms of physical training are these:-
 
 * The boy delights in it, and is keen to learn.
 * He gets to enjoy cleanliness.
@@ -187,13 +187,13 @@ Of all the points in the education of a boy the most difficult and one of the mo
 
 ![Make your boys realize that it is manly to be clean. Keep them busy with healthy activities - that's your best means for helping them to kick out smutty thoughts and unclean habits.](images/kick_thoughts.md)
 
-There is a great barrier of prejudice and false prudery on the part of parents and public still to be overcome, and this has to be recognised and handled tactfully. It is, of course, primarily the duty of parents to see that their children receive proper instruction, but a very large number of them shirk their duty and then build up excuses for doing so. Such neglect is little short of criminal. As Dr. Allen Warner writes:–
+There is a great barrier of prejudice and false prudery on the part of parents and public still to be overcome, and this has to be recognised and handled tactfully. It is, of course, primarily the duty of parents to see that their children receive proper instruction, but a very large number of them shirk their duty and then build up excuses for doing so. Such neglect is little short of criminal. As Dr. Allen Warner writes:-
 
 > Fear has often been expressed in the past that such teaching will lead to vicious habits, but there is no evidence that this is true, whilst ex- perience proves that ignorance on this subject has led to the moral and physical wreckage of many lives.
 
 This is only too true, and I can testify from a fairly wide experience among soldiers and others. The amount of secret immorality that is now prevalent is very serious indeed.
 
-The very fact that the subject is taboo between the boy and grown-ups is provoca- tive, and the usual result is that he gets his knowledge, in a most perverted form, from another boy. In *What a Boy Should Know*, Drs. Schofield and Jackson write:–
+The very fact that the subject is taboo between the boy and grown-ups is provoca- tive, and the usual result is that he gets his knowledge, in a most perverted form, from another boy. In *What a Boy Should Know*, Drs. Schofield and Jackson write:-
 
 > The sexual development of boys is gradual, and it is an unfortunate fact that habits of abuse are begun and constantly practised at a much younger age. If safety lies in the adage that ?to be forewarned is to be forearmed,' then boys must be told what is coming to them, for the critical period of puberty lies ahead of them, and no boy should be allowed to reach it in ignorance.
 
