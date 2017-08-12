@@ -45,7 +45,64 @@ The details of these four branches are shown here:
 
 ### ANALYSIS OF THE SCOUT SCHEME OF TRAINING FOR CITIZENSHIP
 
+#### 1. Character
 
+| Qualities to be Aimed For | Through Practice Of |
+|---------------------------|---------------------|
+| **Civic Fair Play** | Patrol Work |
+| **Respect for Rights of Others** | Team Games |
+| **Discipline** | Court of Honor |
+| **Leadership** | Patrol Leaders' Council |
+| **Responsibility** | Scout Law and Promise |
+| **Moral Honor** | Scout Work and Activities |
+| **Chivalry** | Appreciation of Nature |
+| **Self-Reliance** | Nature Lore and Study |
+| **Courage** | Astronomy |
+| **Capacity for Enjoyment** | Kindness to Animals |
+| **Higher Tone of Thought** | Service to Others |
+| **Religion Reverence** | |
+| **Self-Respect Loyalty** | |
+
+#### 2. Health and Strength
+
+| Qualities to be Aimed For | Through Practice Of |
+|---------------------------|---------------------|
+| **Health** | Responsibility for Personal Health |
+|        | Hygiene |
+|        | Temperance |
+|        | Continence |
+|        | Camping |
+|        | Physical Development |
+| **Strength** | Games |
+|          | Swimming |
+|          | Hiking |
+|          | Climbing |
+|          | Natural Activities |
+
+#### 3. Handcraft and Skill
+
+| Qualities to be Aimed For | Through Practice Of |
+|---------------------------|---------------------|
+| **Technical Skill** | Scoutcraft |
+| **Inventiveness** | Camp Expedients |
+| **Intellectual** | Pioneering |
+| **Observation** | Rewards by Badges |
+| **Dedication** | Hobbies |
+| **Self-Expression** | Woodcraft |
+|                 | Tracking |
+
+#### 4. Service to Others
+
+| Qualities to be Aimed For | Through Practice Of |
+|--------|----------|
+| **Unselfishness** | Scout Law and Promise |
+| **Civic Duty** | Good Turns |
+| **Patriotism** | First Aid |
+| **Service for Country** | Life Saving |
+| **Service for Humanity** | Firemanship |
+| **Service for God** | Accident Corps |
+|                 | Hospital Assistance |
+|                 | Other Community Service |
 
 ## The Activities of Scouting
 
