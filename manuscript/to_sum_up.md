@@ -14,7 +14,7 @@ In every country the purpose of the Scouts' training is identical, namely, effic
 
 In our training of the boy we develop the individual in both spirit and efficiency to be an effective player in his national team of citizenhood. Acting on the same principle in the case of a nation, we should try to develop the right spirit and efficiency for helping that nation to work effectively in the team of nations.
 
-If each, then, plays in its place, and "plays the game," there will be greater prosperity and happiness throughout the world, there will be brought about at last that condition which has so long been looked for — of
+If each, then, plays in its place, and "plays the game," there will be greater prosperity and happiness throughout the world, there will be brought about at last that condition which has so long been looked for - of
 
 C> **Peace and Goodwill among men.**
 
