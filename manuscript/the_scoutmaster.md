@@ -27,7 +27,7 @@ The Patrol System has also a great character-training value if it is used aright
 
 Success in training the boy largely depends upon the Scoutmaster's own personal example. It is easy to become the hero as well as the elder brother of the boy. We are apt, as we grow up, to forget what a store of hero worship is in the boy.
 
-The Scoutmaster who is a hero to his boys holds a powerful lever to their devel- opment, but at the same time brings a great responsibility on himself. They are quick enough to see the smallest characteristic about him, whether it be a virtue or a vice. His mannerisms become theirs, the amount of courtesy he shows, his irrita- tions, his sunny happiness, or his impatient glower, his willing self-discipline or his occasional moral lapses - all are not only noticed, but adopted by his followers.
+The Scoutmaster who is a hero to his boys holds a powerful lever to their development, but at the same time brings a great responsibility on himself. They are quick enough to see the smallest characteristic about him, whether it be a virtue or a vice. His mannerisms become theirs, the amount of courtesy he shows, his irritations, his sunny happiness, or his impatient glower, his willing self-discipline or his occasional moral lapses - all are not only noticed, but adopted by his followers.
 
 Therefore, to get them to carry out the Scout Law and all that underlies it, the Scoutmaster himself should scrupulously carry out its professions in every detail of his life. With scarcely a word of instruction his boys will follow him.
 
