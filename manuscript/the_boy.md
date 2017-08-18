@@ -28,7 +28,7 @@ Mr. Casson, writing in the magazine Teachers' World, thus describes that complic
 
 > Judging from my own experience, I would say that boys have a world of their own - a world that they make for themselves; and neither the teacher nor the lessons are admitted to this world. A boy's world has its own events and standards and code and gossip and public opinion.
 >
-> ![Remember that the boy, on joining, wants to begin scouting right away; so don’t dull his keenness by too much preliminary explanation at first. Meet his wants by games and Scouting practices, and instill elementary details bit by bit afterwards as you go.](images/hiking_stick.jpg)
+> ![Remember that the boy, on joining, wants to begin scouting right away; so don't dull his keenness by too much preliminary explanation at first. Meet his wants by games and Scouting practices, and instill elementary details bit by bit afterwards as you go.](images/hiking_stick.jpg)
 >
 > In spite of teachers and parents, boys remain loyal to their own world. They obey their own code, although it is quite a different code to the one that is taught to them at home and in the schoolroom. They gladly suffer martyrdom at the hands of uncomprehending adults, rather than be false to their own code.
 >
