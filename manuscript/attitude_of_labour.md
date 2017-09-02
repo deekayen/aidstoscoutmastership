@@ -1,6 +1,6 @@
 # The Attitude of Labour Towards Scouting
 
-## American Approval of our Principles
+### American Approval of our Principles
 
 A very suggestive book at the present critical time, when we are trying to see the right direction in which to point our boys' noses is *The Problems of Reconstruction,* published by Fisher Unwin. One among very many of its themes of thought is the view, quoted in his chapter on "The Influence of Vocation on School Education" - namely, that "Education in Continuation Schools should be directed solely towards the development of the bodies, minds, and characters of the pupils, and should be intimately related to their environment and interest." Giving due elasticity to the meaning of the word "solely" and "environment" is this statement, one can claim that our aims in the Scout Movement accord very closely with the idea of the Workers' Education Association. And if these embody the views of the Labour generally we are working as is our aim in sympathy with them.
 
