@@ -10,3 +10,5 @@ health_and_strength.md
 handicraft_and_skill.md
 service_to_others.md
 to_sum_up.md
+backmatter.txt
+appendix.md
