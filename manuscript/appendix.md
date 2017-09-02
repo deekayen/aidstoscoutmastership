@@ -19,14 +19,14 @@ Note. - The following are sample questions such as an examiner could put to cand
 2. What is your view of Military Drill as a means of training boys in character? State briefly its advantages and disadvantages.
 3. What are the objects, advantages, and disadvantages of the Patrol System - that is, having Patrols as units in the Troop under full control of their Patrol Leaders?
 4. How do you start to teach a boy tracking? What is the object of teaching him?
-5. Which Scout Badges do you consider best calcuated to develop "character" in the boy?
+5. Which Scout Badges do you consider best calculated to develop "character" in the boy?
 6. Draw up a programme for a day's work in Camp, particularly for the purpose of training the boys in character. Give your reasons for the different practices selected.
 
 ## III. Physical Health and Development
 
 1. Can you suggest any better body exercises for boys than the size given in Scouting for Boys? If so, please describe them briefly and give reasons. If satisfied with those in the book, state why you consider them the best.
 
-2. How would you put the matter of sex-knowledge to an average boy of 12 assuming the parents desired you to do so? Give a brief outline showing how you would explain it, and what advice you would give on the subject of impurity. State whether your reply is based on acual experience of teaching boys or on theory.
+2. How would you put the matter of sex-knowledge to an average boy of 12 assuming the parents desired you to do so? Give a brief outline showing how you would explain it, and what advice you would give on the subject of impurity. State whether your reply is based on actual experience of teaching boys or on theory.
 
 3. In selecting a site for camp, what points would you chiefly bear in mind?
 
@@ -36,7 +36,7 @@ Note. - The following are sample questions such as an examiner could put to cand
 
 6. It has been suggested that the Scout Movement might give valuable help in the physical development and health of the boys of the nation if it started a regular physical system. For this purpose it has been proposed to institute an "Athletes" Badge in three classes, viz. :-
 
-   *First-class.* - Boys who are up to the average standard of their age in various details of physical develppment and who can swim.
+   *First-class.* - Boys who are up to the average standard of their age in various details of physical development and who can swim.
 
    *Second-class.* - Boys who are similarly up to the standard, but who cannot swim.
 
@@ -93,7 +93,7 @@ Patrols will be able to leave on Sunday night, if desirous.
 
 On Saturday afternoon there will be practical work, and in the evening there will be practical work followed by a Camp-fire yarn.
 
-On Sunday morning there will be a flag-post parade and service. On Sunday afternoon there will be addresses on Saturday's work - treating rather of he moral aspect - followed by practical displays on those points on which Scoutmasters have asked questions the previous night. On Sunday night there will be an open discussion on Socuting.
+On Sunday morning there will be a flag-post parade and service. On Sunday afternoon there will be addresses on Saturday's work - treating rather of he moral aspect - followed by practical displays on those points on which Scoutmasters have asked questions the previous night. On Sunday night there will be an open discussion on Scouting.
 
 #### Addresses
 
@@ -139,7 +139,7 @@ Bugles will not be used.
 
 #### References
 
-Before attending, every Scoutmaster shoudl read up for -
+Before attending, every Scoutmaster should read up for -
 
 *1st week-end.* - *Scouting for Boys,* Chaps. 2 and 5. Chief's article on "Character Training."
 
