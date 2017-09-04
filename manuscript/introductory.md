@@ -136,8 +136,10 @@ Where circumstances permit, a week-end camp will give the best opportunity for t
 
 ## List of Subjects for Study
 
-| I. Boy Training and the need of it. | See Preface and Chapter X. |
-|   | *Scouting for Boys*, Hints on How to start a Troop. |
+| | |
+|------|------|
+| I. Boy Training and  | See Preface and Chapter X. |
+| the need of it. | *Scouting for Boys*, Hints on How to start a Troop. |
 |   | See also *The Wolf Cub Handbook,* and the *Rover* pamphlet.  |
 |------|------|
 | II. Character Training | The Scout Law, Woodcraft, Camping,  |
@@ -153,5 +155,6 @@ Where circumstances permit, a week-end camp will give the best opportunity for t
 | for making a Career | Thrift, Citizenship,   |
 |   | Dangers of Drink, Gambling, Impurity. |
 |------|------|
-| V. Service for Others. | Helpfulness, First Aid, Accidents, Life Saving, Fire Brigade, Missioners, Patriotism. |
-| (Chivalry and Self-sacrifice the basis of Religion.)  |   |
+| V. Service for Others. | Helpfulness, First Aid, Accidents, |
+| (Chivalry and Self-sacrifice   | Life Saving, Fire Brigade, |
+| the basis of Religion.) | Missioners, Patriotism. |
