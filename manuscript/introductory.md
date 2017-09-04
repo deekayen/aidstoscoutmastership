@@ -142,8 +142,8 @@ Where circumstances permit, a week-end camp will give the best opportunity for t
 |------|------|
 | II. Character Training | The Scout Law, Woodcraft, Camping, Chivalry, Happiness and Enjoyment of Life, Observation, Scouting Games, Seamanship. |
 |------|------|
-| III. Physical Health and Development. | Physical Exercises and Reasons for each, Health-giving Habits, Games, Sanitation, Prevention of Disease, Temperance, and Continence, Smoking, Self-Control |
+| III. Physical Health and Development. | Physical Exercises and Reasons for each, Health-giving Habits, Games, Sanitation, Prevention of Disease, Temperance, and Continence, Smoking, Self-Control. |
 |------|------|
-| IV. Self-Improvement for making a Career | Handicrafts, Work for Badges, Thrift, Citizenship, Dangers of Drink, Gambling, Impurity. |
+| IV. Self-Improvement for making a Career. | Handicrafts, Work for Badges, Thrift, Citizenship, Dangers of Drink, Gambling, Impurity. |
 |------|------|
 | V. Service for Others. (Chivalry and Self-sacrifice the basis of Religion.) | Helpfulness, First Aid, Accidents, Life Saving, Fire Brigade, Missioners, Patriotism. |
