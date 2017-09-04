@@ -138,30 +138,12 @@ Where circumstances permit, a week-end camp will give the best opportunity for t
 
 |  |  |
 |------|------|
-| I. Boy Training and  | See Preface and Chapter X. |
-| the need of it. | *Scouting for Boys*, Hints on |
-|   | How to start a Troop.  |
-|   | See also *The Wolf Cub Handbook,* |
-|   |  and the *Rover* pamphlet.  |
+| I. Boy Training and the need of it. | See Preface and Chapter X. *Scouting for Boys*, Hints on How to start a Troop. See also *The Wolf Cub Handbook,* and the *Rover* pamphlet. |
 |------|------|
-| II. Character Training | The Scout Law, Woodcraft,  |
-|   | Camping, Chivalry, Happiness and   |
-|   | Enjoyment of Life, Observation, |
-|   | Scouting Games, Seamanship. |
+| II. Character Training | The Scout Law, Woodcraft, Camping, Chivalry, Happiness and Enjoyment of Life, Observation, Scouting Games, Seamanship. |
 |------|------|
-| III. Physical Health  | Physical Exercises and |
-| and Development. |  Reasons for each, Health-giving |
-|   | Habits, Games, Sanitation, |
-|   | Prevention of Disease, |
-|   | Temperance and Continence,  |
-|   | Smoking, Self-Control  |
+| III. Physical Health and Development. | Physical Exercises and Reasons for each, Health-giving Habits, Games, Sanitation, Prevention of Disease, Temperance, and Continence, Smoking, Self-Control |
 |------|------|
-| IV. Self-Improvement  | Handicrafts, Work for Badges, |
-| for making a Career | Thrift, Citizenship,   |
-|   | Dangers of Drink, Gambling, |
-|   | Impurity.  |
+| IV. Self-Improvement for making a Career | Handicrafts, Work for Badges, Thrift, Citizenship, Dangers of Drink, Gambling, Impurity. |
 |------|------|
-| V. Service for Others. | Helpfulness, First Aid, |
-| (Chivalry and Self-sacrifice | Accidents, Life Saving, |
-| the basis of Religion.) | Fire Brigade, Missioners, |
-|   | Patriotism.  |
+| V. Service for Others. (Chivalry and Self-sacrifice the basis of Religion.) | Helpfulness, First Aid, Accidents, Life Saving, Fire Brigade, Missioners, Patriotism. |
