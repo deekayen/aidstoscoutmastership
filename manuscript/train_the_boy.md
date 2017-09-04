@@ -1,6 +1,6 @@
 # I. How to Train the Boy
 
-C> *It looks difficult but it is not so
+C> *It looks difficult but it is not so*
 
 To an outsider Scouting must at first sight appear to be a very complex matter, and many a man is probably put off from becoming a Scoutmaster because of the enormous number and variety of things that he thinks he would have to know in order to teach his boys. But it need not be so, if the man will only realise the following points:
 
