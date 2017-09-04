@@ -18,13 +18,6 @@ Perhaps the best exponent of the aim and methods of Scouting has been Dean James
 >
 > By encouraging your Scouts in a healthy, cheery, and not in a sanctimonious looking-for-a-reward spirit to do Good Turns as a first step and to do service for the community as a development, you can do more for them even than by encouraging their proficiency or their discipline or their knowledge, because you are teaching them not how to get a living so much as how to live.
 
-## Scouting is Simple
-
-To an outsider Scouting must at first sight appear to be a very complex matter, and many a man is probably put off from becoming a Scoutmaster because of the enormous number and variety of things that he thinks he would have to know in order to teach his boys. But it need not be so, if the man will only realise the following points:
-
-1. The aim of Scouting is quite a simple one.
-2. The Scoutmaster gives to the boy the ambition and desire to learn for himself by suggesting to him activities which attract him, and which he pursues till he, by experience, does them aright. (Such activities are suggested in Scouting for Boys).
-3. The Scoutmaster works through his Patrol Leaders.
 
 ## The Aim of Scouting
 
