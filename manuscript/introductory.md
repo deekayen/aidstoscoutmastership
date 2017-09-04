@@ -136,25 +136,28 @@ Where circumstances permit, a week-end camp will give the best opportunity for t
 
 ## List of Subjects for Study
 
-| | |
 |------|------|
 | I. Boy Training and  | See Preface and Chapter X. |
-| the need of it. | *Scouting for Boys*, Hints on How to start a Troop. |
-|   | See also *The Wolf Cub Handbook,* and the *Rover* pamphlet.  |
+| the need of it. | *Scouting for Boys*, Hints on |
+|   | How to start a Troop.  |
+|   | See also *The Wolf Cub Handbook,* |
+|   |  and the *Rover* pamphlet.  |
 |------|------|
-| II. Character Training | The Scout Law, Woodcraft, Camping,  |
-|   | Chivalry, Happiness and Enjoyment of Life,  |
-|   | Observation, Scouting Games, Seamanship. |
+| II. Character Training | The Scout Law, Woodcraft,  |
+|   | Camping, Chivalry, Happiness and   |
+|   | Enjoyment of Life,Observation, Scouting Games, |
+|   | Seamanship. |
 |------|------|
-| III. Physical Health  | Physical Exercises and Reasons for each, |
-| and Development. | Health-giving Habits, Games, Sanitation, |
-|   | Prevention of Disease, Temperance and Continence, |
-|   | Smoking, Self-Control  |
+| III. Physical Health  | Physical Exercises and |
+| and Development. |  Reasons for each, Health-giving |
+|   | Habits, Games, Sanitation, Prevention of Disease, |
+|   | Temperance and Continence, Smoking, Self-Control  |
 |------|------|
 | IV. Self-Improvement  | Handicrafts, Work for Badges, |
 | for making a Career | Thrift, Citizenship,   |
 |   | Dangers of Drink, Gambling, Impurity. |
 |------|------|
-| V. Service for Others. | Helpfulness, First Aid, Accidents, |
-| (Chivalry and Self-sacrifice   | Life Saving, Fire Brigade, |
-| the basis of Religion.) | Missioners, Patriotism. |
+| V. Service for Others. | Helpfulness, First Aid, |
+| (Chivalry and Self-sacrifice | Accidents, Life Saving, |
+| the basis of Religion.) | Fire Brigade, Missioners, |
+|   | Patriotism.  |
