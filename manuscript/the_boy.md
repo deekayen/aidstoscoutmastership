@@ -1,8 +1,4 @@
-# The Boy
-
-## The Nature of the Boy
-
-![Members of the Scouting family: Cub, Scout and Senior Scout](images/members_of_the_scouting_family.jpg)
+## The Boy
 
 The first step towards success in training your boy is to know something about boys in general and then about this boy in particular.
 
@@ -14,13 +10,19 @@ It is well to recall, so far as possible, what your ideas were when a boy yourse
 
 The following qualities in the boy have to be taken into consideration:
 
-* Humour. - It must be remembered that a boy is naturally full of humour; it may be on the shallow side, but he can always appreciate a joke and see the funny side of things. And this at once gives the worker with boys a pleasant and bright side to his work and enables him to become the cheery companion, instead of the taskmaster, if he only joins in the fun of it.
-* Courage. - The average boy generally manages to have pluck as well. He is not by nature a grumbler, though later on he may become one, when his self-respect has died out of him and when he has been much in the company of "grousers."
-* Confidence. - A boy is generally supremely confident in his own powers. There- fore, he dislikes being treated as a child and being told to do things or how to do them. He would much rather try for himself, even though it may lead him into blunders, but it is just by making mistakes that a boy gains experience and makes his character.
-* Sharpness. - A boy is generally as sharp as a needle. It is easy to train him in matters appertaining to observation and noticing things and deducing their meaning.
-* Love of Excitement. - The town boy is generally more unsettled than his country brothers by the excitements of the town, whether they are "a passing fire engine, or a good fight between two of his neighbours." He cannot stick at a job for more than a month or two because he wants change.
-* Responsiveness. - When a boy finds somebody who takes an interest in him he responds and follows where he is led, and it is here that hero-worship comes in as a great force for helping the Scoutmaster.
-* Loyalty. - This is a feature in a boy's character that must inspire boundless hope. Boys are usually loyal friends to each other, and thus friendliness comes almost naturally to a boy. It is the one duty that he understands. He may appear selfish outwardly, but, as a general rule, he is very willing under the surface to be helpful to others, and that is where our Scout training finds good soil to work upon.
+*Humour.* - It must be remembered that a boy is naturally full of humour; it may be on the shallow side, but he can always appreciate a joke and see the funny side of things. And this at once gives the worker with boys a pleasant and bright side to his work and enables him to become the cheery companion, instead of the taskmaster, if he only joins in the fun of it.
+
+*Courage.* - The average boy generally manages to have pluck as well. He is not by nature a grumbler, though later on he may become one, when his self-respect has died out of him and when he has been much in the company of "grousers."
+
+*Confidence.* - A boy is generally supremely confident in his own powers. There- fore, he dislikes being treated as a child and being told to do things or how to do them. He would much rather try for himself, even though it may lead him into blunders, but it is just by making mistakes that a boy gains experience and makes his character.
+
+*Sharpness.* - A boy is generally as sharp as a needle. It is easy to train him in matters appertaining to observation and noticing things and deducing their meaning.
+
+*Love of Excitement.* - The town boy is generally more unsettled than his country brothers by the excitements of the town, whether they are "a passing fire engine, or a good fight between two of his neighbours." He cannot stick at a job for more than a month or two because he wants change.
+
+*Responsiveness.* - When a boy finds somebody who takes an interest in him he responds and follows where he is led, and it is here that hero-worship comes in as a great force for helping the Scoutmaster.
+
+*Loyalty.* - This is a feature in a boy's character that must inspire boundless hope. Boys are usually loyal friends to each other, and thus friendliness comes almost naturally to a boy. It is the one duty that he understands. He may appear selfish outwardly, but, as a general rule, he is very willing under the surface to be helpful to others, and that is where our Scout training finds good soil to work upon.
 
 If one considers and studies these different attributes in the boy one is in a far better position for adapting the training to suit his different propensities. Such study is the first step to making a success of the training. I had the pleasure, during one single week, of coming across three boys in different centres who were pointed out to me as having been incorrigible young blackguards and hooligans until they came under the influence of Scouting. Their respective Scoutmasters had, in each case, found out the good points which underlay the bad ones in them, and having seized upon these had put the boys on to jobs which suited their peculiar temperaments; and there are now these three, fine hulking lads, each of them doing splendid work, entirely transformed in character from their old selves. It was worth the trouble of having organised the Troops just to have had these single successes.
 

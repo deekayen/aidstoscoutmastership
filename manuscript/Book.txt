@@ -1,7 +1,8 @@
 frontmatter.txt
 foreward.md
 mainmatter.txt
-the_scoutmaster.md
+introductory.md
+train_the_boy.md
 the_boy.md
 scouting.md
 the_patrol_system.md

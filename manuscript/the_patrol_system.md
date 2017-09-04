@@ -41,15 +41,3 @@ Personally, I put on uniform, even if I have only a Patrol to inspect, because I
 Smartness in uniform and correctness in detail may seem a small matter, but has, its value in the development of self-respect, and means an immense deal to the reputation of the Movement among outsiders who judge by what they see.
 
 It is largely a matter of example. Show me a slackly-dressed Troop and I can "Sherlock" a slacklydressed Scoutmaster. Think of it, when you are fitting on your uniform or putting that final saucy cock to your hat. You are the model to your boys and your smartness will reflect itself in them.
-
-## The Scoutmaster's Share
-
-The principles of Scouting are all in the right direction. The success in their application depends on the Scoutmaster and how he applies them. My present object is to endeavour to help the Scoutmaster in this particular: First, by showing the object of the Scout training; secondly, by suggesting methods by which it may be carried out.
-
-Many a Scoutmaster would probably desire I should give him all particulars in detail. But this would in reality be an impossibility, because what suits one particular Troop or one kind of boy, in one kind of place, will not suit another within a mile of it, much less those scattered over the world and existing under totally different conditions. Yet one can give a certain amount of general suggestion, and Scoutmasters in applying this can judge for themselves far best which details are most likely to bring about success in their own particular Troops.
-
-But before going into details, once more let me repeat: Do not be appalled by any imaginary magnitude of the task. It will disappear when once you see the aim. You have then only to keep that always before you and adapt the details to suit the end.
-
-As in Peveril of the Peak: "It matters not much whether we actually achieve our highest ideals so be it that they are high."
-
-Occasionally, difficulties may loom up so as almost to blot out the radiant possibilities. But it is comforting to remember that they are generally out of their proper proportion and subside as you approach them.
