@@ -136,6 +136,7 @@ Where circumstances permit, a week-end camp will give the best opportunity for t
 
 ## List of Subjects for Study
 
+|  |  |
 |------|------|
 | I. Boy Training and  | See Preface and Chapter X. |
 | the need of it. | *Scouting for Boys*, Hints on |
@@ -145,17 +146,20 @@ Where circumstances permit, a week-end camp will give the best opportunity for t
 |------|------|
 | II. Character Training | The Scout Law, Woodcraft,  |
 |   | Camping, Chivalry, Happiness and   |
-|   | Enjoyment of Life,Observation, Scouting Games, |
-|   | Seamanship. |
+|   | Enjoyment of Life, Observation, |
+|   | Scouting Games, Seamanship. |
 |------|------|
 | III. Physical Health  | Physical Exercises and |
 | and Development. |  Reasons for each, Health-giving |
-|   | Habits, Games, Sanitation, Prevention of Disease, |
-|   | Temperance and Continence, Smoking, Self-Control  |
+|   | Habits, Games, Sanitation, |
+|   | Prevention of Disease, |
+|   | Temperance and Continence,  |
+|   | Smoking, Self-Control  |
 |------|------|
 | IV. Self-Improvement  | Handicrafts, Work for Badges, |
 | for making a Career | Thrift, Citizenship,   |
-|   | Dangers of Drink, Gambling, Impurity. |
+|   | Dangers of Drink, Gambling, |
+|   | Impurity.  |
 |------|------|
 | V. Service for Others. | Helpfulness, First Aid, |
 | (Chivalry and Self-sacrifice | Accidents, Life Saving, |
