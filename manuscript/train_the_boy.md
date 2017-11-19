@@ -83,17 +83,15 @@ The first step towards success in training your boy is to know something about b
 
 Dr. Saleeby, in an address to the Ethical Society in London, said:
 
-> The first requisite for a successful teacher is knowledge of the nature of the boy. The boy or girl is not a small edition of a man or woman, not a piece of blank paper on which the teacher should write, but every child has his own peculiar curiosity, his inexperience, a normal mysterious frame of mind which needs to be tactfully helped, encouraged and moulded or modified or even suppressed.
+> Public opinion is to-day realising that the views expressed by Walt Whitman, George Fox, Spencer and Riskin are correct, viz. that the first requisite for a successful teacher is knowledge of the nature of the boy. The boy or girl is not a small edition of a man or woman, not a piece of blank paper on which the teacher should write, but every child has his own peculiar curiosity, his inexperience, a normal mysterious frame of mind which needs to be tactfully helped, encouraged and moulded or modified or even suppressed.
 
-It is well to recall, so far as possible, what your ideas were when a boy yourself, and you can then much better understand his feelings and desires.
-
-The following qualities in the boy have to be taken into consideration:
+It is well to recall, so far as possible, what your ideas were when a boy yourself, and you can then much better understand his feelings and desires. It has been truly said that "there is no such things as the ordinary working boy; each of them is quite out of the common, with abilities and weaknesses of his own." The Rev. H. S. Pelham, in his book, *The Training of the Working Boy,* enumerates the following qualities which have to be taken into consideration:—
 
 *Humour.*—It must be remembered that a boy is naturally full of humour; it may be on the shallow side, but he can always appreciate a joke and see the funny side of things. And this at once gives the worker with boys a pleasant and bright side to his work and enables him to become the cheery companion, instead of the taskmaster, if he only joins in the fun of it.
 
-*Courage.*—The average boy generally manages to have pluck as well. He is not by nature a grumbler, though later on he may become one, when his self-respect has died out of him and when he has been much in the company of "grousers."
+*Courage.*—The poorer boy, who has a life of hardship, generally manages to have pluck as well. (Jack Cornwell, like many other hero of the war, was a boy Scout belonging to a poor city Troop.) He is not by nature a grumbler, though later on he may become one, when his self-respect has died out of him and when he has been much in the company of "grousers."
 
-*Confidence.*—A boy is generally supremely confident in his own powers. There- fore, he dislikes being treated as a child and being told to do things or how to do them. He would much rather try for himself, even though it may lead him into blunders, but it is just by making mistakes that a boy gains experience and makes his character.
+*Confidence.*—A boy is generally supremely confident in his own powers. Therefore, he is rather adverse from being treated as a child and being told to do things or how to do them. He would much rather try for himself, even though it may lead him into blunders, but it is just by making mistakes that a boy gains experience and makes his character.
 
 *Sharpness.*—A boy is generally as sharp as a needle. It is easy to train him in matters appertaining to observation and noticing things and deducing their meaning.
 
