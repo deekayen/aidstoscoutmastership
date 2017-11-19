@@ -120,9 +120,13 @@ Having thus spread itself automatically about the world the Scout and Guide move
 
 We want to prevent in the next generation some of the defects apparent in the present. Here is a statement of these, together with the steps which we employ in Scouting to remedy them.
 
+![](images/national_inefficiencies.png)
+
 Such are the failings and remedies which fall outside the school purview, and with which we endeavour to deal in the Scout movement.
 
-How to help the Scoutmaster most readily to master them is the object of this work. Through mutual conferences and instruction it can be done most happily.
+How to help the Scoutmaster most readily to master them is the object of this work.
+
+Through mutual conferences and instruction it can be done most happily.
 
 ## Suggestion of Work for a Study Patrol
 
@@ -130,7 +134,9 @@ Where there are a number of candidates living in the same town or district, it i
 
 Commissioners and Scoutmasters might do good work by collecting a number of young men from among their friends and explaining the scheme to them with the view of forming such a Patrol.
 
-Roughly, one night a week for four weeks might be given to each of the five subjects specified below. Principles could be taught by an informal lecture with questions and discussion for about an hour, followed by practical work for another hour.
+Roughly, one night a week for four weeks might be given to each of the five subjects specified below.
+
+Principles could be taught by an informal lecture with questions and discussion for about an hour, followed by practical work for another hour.
 
 Where circumstances permit, a week-end camp will give the best opportunity for training, and each Patrol should try to arrange one at the end of each four weeks. If the weather is too bad for the first month or two, the use of some Scout Hall or other building at the seaside or in the country might be obtained.
 
