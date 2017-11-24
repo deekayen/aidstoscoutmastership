@@ -1,18 +1,16 @@
-# I. Character
+# II. Character
 
-## Importance of Character
+## Character Training Through Scouting
 
-![The Code of the knight is still the code of the gentleman today](images/knight.jpg)
+> "A nation owes its success, not so much to its strength in armaments, as to the amount of character in its citizens."
+>
+> "For a man to be successful in life, character is more essential than erudition."
 
-> A nation owes its success, not so much to its strength in armaments, as to the amount of character in its citizens.
+So character is of first value whether for a nation or for the individual.
 
-"A nation owes its success, not so much to its strength in armaments, as to the amount of character in its citizens."
+Erudition—that is, reading, writing, and arithmetic—is taught in the schools; but where is the more important quality, charater, taught? Nowhere in particular. There is no authorised training for children in character. Yet, if it is going to make a man's career for him, it ought to be developed in him before he starts out; while his is still a boy and receptive. Character cannot be drilled into a boy. The germ of it is already in him, and needs to be drawn out and expanded. How?
 
-"For a man to be successful in life, character is more essential than erudition."
-
-So character is of first value whether for a nation or for the individual. But if character is to make a man's career for him, it ought to be developed in him before he starts out; while he is still a boy and receptive. Character cannot be drilled into a boy. The germ of it is already in him, and needs to be drawn out and expanded. How?
-
-Character is very generally the result of environment or surroundings. For exam- ple, take two small boys, twins if you like. Teach them the same lessons in school, but give them entirely different surroundings, companions, and homes outside the school. Put one under a kindly, encouraging mother, among clean and straight playfellows, where he is trusted on his honour to carry out rules of life and so on. On the other hand, take the second boy and let him loaf in a filthy home, among foul-mouthed, thieving, discontented companions. Is he likely to grow up with the same amount of character as his twin?
+Character is very generally the result of environment or surroundings. For example, take two small boys, twins if you like. Teach them the same lessons in school, but give them entirely different surroundings, companions, and homes outside the school. Put one under a kindly, encouraging mother, among clean and straight playfellows, where he is trusted on his honour to carry out rules of life and so on. On the other hand, take the second boy and let him loaf in a filthy home, among foul-mouthed, thieving, discontented companions. Is he likely to grow up with the same amount of character as his twin?
 
 There are thousands of boys being wasted daily through being left to become characterless, and therefore, useless wasters, a misery to themselves and an eyesore and a danger to the nation.
 
@@ -20,11 +18,13 @@ They could be saved if only the right surroundings or environment were given to 
 
 Here, then, lies the most important object in the Boy Scout training - to educate; not to instruct, mind you, but to educate, that is, to draw out the boy to learn for himself, of his own desire, the things that tend to build up character in him.
 
-## One Reason Why a Troop Should not Exceed Thirty Two
+## One Reason Why a Troop Should not Exceed 32
 
-The number in a Troop should preferably not exceed thirty-two. I suggest this number because in training boys myself I have found that sixteen was about as many as I could deal with - in getting at and bringing out the individual character in each. I allow for other people being twice as capable as myself and hence the total of thirty-two. Men talk of having fine Troops of 60 or even 100 - and their leaders tell me that their boys are equally well trained as in smaller Troops. I express admiration ("admiration" literally translated means "surprise"), and I don't believe them.
+I have said in *Scouting for Boys* that so far as my own experience went I should not train individually more than 16 boys—but allowing for my having only half the capactity of the experienced boy worker, the Scoutmaster, I allowed for his taking on 32.
 
-"Why worry about individual training?" they ask. Because it is the only way by which you can educate. You can instruct any number of boys, a thousand at a time if you have a loud voice and attractive methods of disciplinary means. But that is not training - it is not education.
+Men talk of having fine Troops of 60 or even 100—Cadet Companies even run to 120—and their officers tell me that their boys are equally trained as in smaller Troops. I express admiration ("admiration" literally translated means "surprise"), and I don't believe them.
+
+Why worry about individual training? they ask. Because it is the only way by which you can educate. You can instruct any number of boys, a thousand at a time if you have a loud voice and attractive methods of disciplinary means. But that is not training - it is not education.
 
 Education is the thing that counts in building character and In making men.
 
