@@ -3,7 +3,6 @@ foreward.md
 mainmatter.txt
 introductory.md
 train_the_boy.md
-the_boy.md
 scouting.md
 the_patrol_system.md
 character.md
