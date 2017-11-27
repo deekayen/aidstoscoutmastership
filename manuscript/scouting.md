@@ -1,7 +1,5 @@
 # Scouting
 
-![Vigorous outdoor living is the key to the spirit of Scouting.](images/run_stick.jpg)
-
 Scouting is a game for boys, under the leadership of boys, in which elder brothers can give their younger brothers healthy environment and encourage them to healthy activities such as will help them to develop **Citizenship**.
 
 Its strongest appeal is through Nature Study and Woodcraft. It deals with the individual, not with the Company. It raises intellectual as well as purely physical or purely moral qualities.
@@ -109,8 +107,6 @@ From the parents' point of view it gives physical health and development; it tea
 
 The Scout training attracts boys of all classes, high and low, rich and poor, and even catches the physically defective, deaf mutes, and blind. It inspires the desire to learn. The principle on which Scouting works is that the boy's ideas are studied, and he is encouraged to **educate himself** instead of being instructed.
 
-![Scouting is a jolly game in the out of doors, where boy-men and boys can go adventuring together as older and younger brothers, picking up health and  happiness, handicraft and helpfulness.](images/canoe.jpg)
-
 It gives a good start in technical training through badges for proficiency in various kinds of hobbies and handicrafts, in addition to the actual Scouts' Badges of First and Second Class, testifying to their capabilities in swimming, pioneering, cooking, woodsmanship, and other points of manliness and handiness. The object of offering so many as we do at an elementary standard is to draw out the boys of every type to try their hand at various kinds of work, and the watchful Scoutmaster can very quickly recognise the particular bent of each boy and encourage it accordingly. And that is the best road towards expanding his individual character and starting a boy on a successful career. Moreover, we encourage personal responsibility in the boy for his own physical development and health: and we trust in his honour and expect him to do a Good Turn to someone every day.
 
 Where the Scoutmaster is himself a bit of a boy, and can see it all from the boy's point of view, he can, if he is imaginative, invent new activities, with frequent variations, to meet the boys' thirst for novelty. Note the theatres. If they find that a play does not appeal to the public, they don't go on hammering away with it in the hope that it will in the end do so - they take it off and put on some new attraction.
@@ -124,8 +120,6 @@ When in war-time a soldier-scout is out at night and wants to gain information o
 So, too, in the Patrol Leaders' Council debates and camp fire talks; if you make listening and observation your particular occupation, you will gain much more in- formation from your boys than you can put into them by your own talk.
 
 Also, when visiting the parents, don't go with the idea of impressing on them the value of Scouting so much as to glean from them what are their ideas of training their boys and what they expect of Scouting or where they find it deficient.
-
-![The vision of the boy is across the prairie and the seas. In Scouting he feels himself akin to the Indian, the Pioneer, the Backwoodsman.](images/prairie.jpg)
 
 Generally speaking, when short of ideas don't impose on your Scouts' activities which you think they ought to like; but find out from them by listening or by questioning which activities appeal most to them, and then see how far you can get these going that is, if they are likely to be beneficial to the boys.
 

@@ -10,8 +10,6 @@ An invaluable step in character training is to put responsibility on to the indi
 
 Then, through emulation and competition between Patrols, you produce a Patrol spirit which is eminently satisfactory, since it raises the tone among the boys and develops a higher standard of efficiency all round. Each boy in the Patrol realises that he is in himself a responsible unit and that the honour of his group depends in some degree on his own ability in playing the game.
 
-![The best progress is made in those Troops where power and responsibility are really put into the hands of the Patrol Leaders. This is the Secret of success in Scout Training.](images/duo.jpg)
-
 ## Patrol Leaders' Council - Court of Honour
 
 The Patrol Leaders' Council and Court of Honour is an important part of the Patrol System. It is a standing committee which, under the guidance of the Scoutmaster, settles the affairs of the Troop, both administrative and disciplinary. It develops in its members self-respect, ideals of freedom coupled with a sense of responsibility and respect for authority, while it gives practice in procedure such as is invaluable to the boys individually and collectively as future citizens.
