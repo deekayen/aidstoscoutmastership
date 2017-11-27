@@ -69,13 +69,13 @@ So that from the table we may take out *(a)* and *(d)*, which will more properly
 
 That leaves us *b, e, f, g* to consider here—namely:
 
-{line-numbers=off}
-~~~~~~~~
-(b) Sense of Honour
-(e) Self-reliance
-(f) Intelligence
-(g) Enjoyment of Life.
-~~~~~~~~
+> {line-numbers=off}
+> ~~~~~~~~
+> (b) Sense of Honour
+> (e) Self-reliance
+> (f) Intelligence
+> (g) Enjoyment of Life.
+> ~~~~~~~~
 
 ## *(b)* Sense of Honour
 
