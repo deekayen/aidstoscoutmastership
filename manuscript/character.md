@@ -69,10 +69,13 @@ So that from the table we may take out *(a)* and *(d)*, which will more properly
 
 That leaves us *b, e, f, g* to consider here—namely:
 
-> *(b)* Sense of Honour
-> *(e)* Self-reliance
-> *(f)* Intelligence
-> *(g)* Enjoyment of Life.
+{line-numbers=off}
+~~~~~~~~
+(b) Sense of Honour
+(e) Self-reliance
+(f) Intelligence
+(g) Enjoyment of Life.
+~~~~~~~~
 
 ## *(b)* Sense of Honour
 
@@ -188,10 +191,13 @@ Switch them off doggerel if you can. It is far too prevalent, when even our Nati
 
 I love good doggerel too—in its place:
 
-> "Grandma's fallen down a drain.
-> Couldn't get her up again.
-> Now she's floating out to sea—
-> Thus we save her funeral fee."
+{style=poem}
+~~~~~~
+"Grandma's fallen down a drain.
+Couldn't get her up again.
+Now she's floating out to sea—
+Thus we save her funeral fee."
+~~~~~~
 
 Rhythm is a form of art which comes naturally even to the untrained mind, whether it be employed in poetry or music or in body exercises. It gives balance and order which has its natural appeal even and especially among these closes to nature—savages. In the form of music it is of course most obvious and universal. THe Zulu War Song when sugn by four or five thousand warriors is an exmaple of rhuthm, in music, poetry and bodily movement combined.
 
