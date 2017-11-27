@@ -8,7 +8,7 @@
 
 So character is of first value whether for a nation or for the individual.
 
-Erudition—that is, reading, writing, and arithmetic—is taught in the schools; but where is the more important quality, charater, taught? Nowhere in particular. There is no authorised training for children in character. Yet, if it is going to make a man's career for him, it ought to be developed in him before he starts out; while his is still a boy and receptive. Character cannot be drilled into a boy. The germ of it is already in him, and needs to be drawn out and expanded. How?
+Erudition—that is, reading, writing, and arithmetic—is taught in the schools; but where is the more important quality, character, taught? Nowhere in particular. There is no authorised training for children in character. Yet, if it is going to make a man's career for him, it ought to be developed in him before he starts out; while his is still a boy and receptive. Character cannot be drilled into a boy. The germ of it is already in him, and needs to be drawn out and expanded. How?
 
 Character is very generally the result of environment or surroundings. For example, take two small boys, twins if you like. Teach them the same lessons in school, but give them entirely different surroundings, companions, and homes outside the school. Put one under a kindly, encouraging mother, among clean and straight playfellows, where he is trusted on his honour to carry out rules of life and so on. On the other hand, take the second boy and let him loaf in a filthy home, among foul-mouthed, thieving, discontented companions. Is he likely to grow up with the same amount of character as his twin?
 
@@ -20,7 +20,7 @@ Here, then, lies the most important object in the Boy Scout training - to educat
 
 ## One Reason Why a Troop Should not Exceed 32
 
-I have said in *Scouting for Boys* that so far as my own experience went I should not train individually more than 16 boys—but allowing for my having only half the capactity of the experienced boy worker, the Scoutmaster, I allowed for his taking on 32.
+I have said in *Scouting for Boys* that so far as my own experience went I should not train individually more than 16 boys—but allowing for my having only half the capacity of the experienced boy worker, the Scoutmaster, I allowed for his taking on 32.
 
 Men talk of having fine Troops of 60 or even 100—Cadet Companies even run to 120—and their officers tell me that their boys are equally trained as in smaller Troops. I express admiration ("admiration" literally translated means "surprise"), and I don't believe them.
 
@@ -65,7 +65,7 @@ But the qualities, which go to make a good citizen, are, as before pointed out:
 3. Handicraft for making a career.
 4. Service to others.
 
-So that from the table we may take out *(a)* and *(d)*, which will more properly be dealth with when we come to the subject of *Service to Others*; also *(c)* and *(h)*, which will apply when we come to *Health* and to *Making a Career*.
+So that from the table we may take out *(a)* and *(d)*, which will more properly be dealt with when we come to the subject of *Service to Others*; also *(c)* and *(h)*, which will apply when we come to *Health* and to *Making a Career*.
 
 That leaves us *b, e, f, g* to consider here—namely:
 
@@ -119,7 +119,7 @@ When training the South African Constabulary I used to send the men out in pairs
 
 But when I had a somewhat dense pupil he was sent out alone, without another to lean upon, to find his own way, make his own arrangements for feeding himself and his horse, and for drawing up the report of his expedition unaided. This was the best training of all in self-reliance and intelligence, and this principle is one which I can confidently recommend to Scoutmasters in training their Scouts.
 
-Of all the schools the camp is far and away the best for teaching boys the desired characterattributes. The environment is healthy, the boys are elated and keen, all the interests of life are round them, and the Scoutmaster has them permanently for the time, day and night, under his hand. In camp the Scoutmaster has his greatest opportunity for watching and getting to know the individual characteristics of each of his boys, and then apply the necessary direction to their development; while the boys themselves pick up the character-forming qualities incident to life in camp, where discipline, resourcefulness, ingenuity, self-reliance, handcraft, wood-craft, boat-craft, team sense, nature lore, etc., can all be imbibed under cheery and sympathetic direction of the understanding Scoutmaster. A week of this life is worth six months of theoretical teaching in the meeting room, valuable though that may be.
+Of all the schools the camp is far and away the best for teaching boys the desired character-attributes. The environment is healthy, the boys are elated and keen, all the interests of life are round them, and the Scoutmaster has them permanently for the time, day and night, under his hand. In camp the Scoutmaster has his greatest opportunity for watching and getting to know the individual characteristics of each of his boys, and then apply the necessary direction to their development; while the boys themselves pick up the character-forming qualities incident to life in camp, where discipline, resourcefulness, ingenuity, self-reliance, handcraft, wood-craft, boat-craft, team sense, nature lore, etc., can all be imbibed under cheery and sympathetic direction of the understanding Scoutmaster. A week of this life is worth six months of theoretical teaching in the meeting room, valuable though that may be.
 
 As the boy becomes conscious of no longer being a Tenderfoot, but of being a responsible and trusted individual with power to do things, he becomes self-reliant. Hope and ambition begin to dawn for him.
 
@@ -141,7 +141,7 @@ C> *Observation. Deduction. Use of Wits.*
 
 Observation and deduction are the basis of all knowledge and can be taught directly through tracking and sign-reading (see *Scouting for Boys*, Chapter IV.), and by the reproduction of Sherlock Holmes stories in scenes.
 
-The general intelligence and quickwittedness of the boys can very considerably be educated by their finding the way with a map, noticing landmarks, judging heights and distances, and noticing and reporting all details of people, vehicles, cattle, etc. Signalling sharpens their wits, develops their eyesight, and encourages them to study and to concentrate their minds. Ambulance instruction hasl also similar educative value.
+The general intelligence and quickwittedness of the boys can very considerably be educated by their finding the way with a map, noticing landmarks, judging heights and distances, and noticing and reporting all details of people, vehicles, cattle, etc. Signalling sharpens their wits, develops their eyesight, and encourages them to study and to concentrate their minds. Ambulance instruction has also similar educative value.
 
 Winter evenings and wet days can be usefully employed by the Scoutmaster reading the principal items of news in the day's newspaper, illustrating them by map, etc. The getting-up of plays and pageants bearing on the history of the place is also an excellent means of getting the boys to study, and to express themselves without self-consciousness.
 
@@ -161,7 +161,7 @@ This is in addition to the realisation of God the Creator through His wondrous w
 
 I was in the sitting-room of a friend who had just died, and lying on the table beside his abandoned pipe and tobacco pouch was a book by Richard Jefferies—*Field and Hedgerow*, in which a page was turned down which said:
 
-> "The conception of moral good is not altogether satisfying. The highest form known to us at present is pure unselfishness, the doing of good not for any reward now or hereafter, nor for the completion of any imaginary scheme. That is the best we know, but how unsatisfactory! An outlet is needed more fully satisfying to the heart's inmost desire than is afforded by any labour of selfabnegation. It must be something in accord with the perception of beauty and of an ideal. Personal virtue is not enough. Though I cannot name the ideal good it seems to me that it will in some way be closely associated with the ideal beauty of Nature."
+> "The conception of moral good is not altogether satisfying. The highest form known to us at present is pure unselfishness, the doing of good not for any reward now or hereafter, nor for the completion of any imaginary scheme. That is the best we know, but how unsatisfactory! An outlet is needed more fully satisfying to the heart's inmost desire than is afforded by any labour of self-abnegation. It must be something in accord with the perception of beauty and of an ideal. Personal virtue is not enough. Though I cannot name the ideal good it seems to me that it will in some way be closely associated with the ideal beauty of Nature."
 
 In other words, one may suggest that happiness is a matter of inner conscience and outward sense working in combination. It is to be got where the conscience as well as the senses together are satisfied. If the above quoted definition be true, the converse is at least equally certain - namely, that the appreciation of beauty cannot bring happiness if your conscience is not at rest. So that if we want our boys to gain happiness in life we must put into them the practice of doing good to their neighbours, and in addition, the appreciation of the beautiful in Nature.
 
@@ -199,7 +199,7 @@ Now she's floating out to sea—
 Thus we save her funeral fee."
 ~~~~~~
 
-Rhythm is a form of art which comes naturally even to the untrained mind, whether it be employed in poetry or music or in body exercises. It gives balance and order which has its natural appeal even and especially among these closes to nature—savages. In the form of music it is of course most obvious and universal. THe Zulu War Song when sugn by four or five thousand warriors is an exmaple of rhuthm, in music, poetry and bodily movement combined.
+Rhythm is a form of art which comes naturally even to the untrained mind, whether it be employed in poetry or music or in body exercises. It gives balance and order which has its natural appeal even and especially among these closes to nature—savages. In the form of music it is of course most obvious and universal. The Zulu War Song when sung by four or five thousand warriors is an example of rhythm, in music, poetry and bodily movement combined.
 
 The enjoyment of rendering or of hearing music is common to all the human family. The song as a setting to words enables the soul to give itself expression which, when adequately done, brings pleasure both to the singer and to his hearer.
 
