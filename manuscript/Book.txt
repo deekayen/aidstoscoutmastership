@@ -4,8 +4,6 @@ mainmatter.txt
 introductory.md
 train_the_boy.md
 character.md
-scouting.md
-the_patrol_system.md
 health_and_physical_development.md
 making_a_career.md
 service_for_others.md
