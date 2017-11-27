@@ -1,4 +1,5 @@
 frontmatter.txt
+editor_notes.md
 foreward.md
 mainmatter.txt
 introductory.md
