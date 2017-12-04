@@ -174,7 +174,7 @@ The very fact that the subject is taboo between the boy and grown-ups is provoca
 
 In *What a Boy Should Know*, Drs. Schofield and Jackson write:—
 
-> "The sexual development of boys is gradual, and it is an unfortunate fact that habits of abuse are begun and constantly practised at a much younger age. If safety lies in the adage that ?to be forewarned is to be forearmed,' then boys must be told what is coming to them, for the critical period of puberty lies ahead of them, and no boy should be allowed to reach it in ignorance."
+> "The sexual development of boys is gradual, and it is an unfortunate fact that habits of abuse are begun and constantly practised at a much younger age. If safety lies in the adage that 'to be forewarned is to be forearmed,' then boys must be told what is coming to them, for the critical period of puberty lies ahead of them, and no boy should be allowed to reach it in ignorance."
 
 A Scoutmaster has here a tremendous field for good. He must in the first instance ascertain whether the father of the boy has any objection to his talking to him on the subject.
 
