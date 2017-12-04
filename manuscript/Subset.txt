@@ -1,5 +1,4 @@
 frontmatter.txt
 foreward.md
 mainmatter.txt
-the_scoutmaster.md
-the_boy.md
+introductory.md
