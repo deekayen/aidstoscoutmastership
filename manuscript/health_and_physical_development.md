@@ -82,7 +82,7 @@ It is perfectly astonishing to see how few boys are able to run.
 
 The natural, easy light step comes only with the practice of running. Without it the poor boy develops either the slow heavy plod of the clod-hopper or the shuffling paddle of the city man (and what a lot of character is conveyed in the gait of a man!).
 
-*Organised Games.*—The *practice of running is best inculcated through games and sport.
+*Organised Games.*—The *practice* of running is best inculcated through games and sport.
 
 A usual objection raised is that the poorer boys don't care about games—can't play them.
 
