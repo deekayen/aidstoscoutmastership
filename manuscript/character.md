@@ -219,6 +219,6 @@ C> **Subject II.—Character Training**
 |------|------|
 | 3rd Week.—*Educational value of camping.* | Camp pitching. Camp games. |
 |------|------|
-| 4th Week.—*Camp management, catering, financing, and discipline..* | Signalling. Signal fires. Despatch running. Whistle calls. |
+| 4th Week.—*Camp management, catering, financing, and discipline.* | Signalling. Signal fires. Despatch running. Whistle calls. |
 
 *Week-end Camp.*—Tramp out, finding way by map. Noticing landmarks, pitch tent, cook food, salute flag, camp prayers. Practise instruction learnt during previous four weeks.
