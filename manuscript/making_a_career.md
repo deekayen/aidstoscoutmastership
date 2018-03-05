@@ -116,7 +116,7 @@ Wrong ideas and fallacies are actually and deliberately taught to children to So
 
 ## Employment
 
-![](images/employment.jpg)
+![](images/employment.png)
 
 ## Programme For Study Patrol
 
