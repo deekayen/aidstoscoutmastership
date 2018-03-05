@@ -2,6 +2,68 @@
 
 The attributed which we have so far been studying, as tending to make our boys into manly, healthy, happy working citizens, are, to a great extent, selfish ones designed for the good of the individual. We now come to the fourth branch of Scout training, through which, by developing his outlook, the boy gives out good to others.
 
+## Proficiency Badges (Merit Badges)
+
+Proficiency Badges are established with a view to developing in each lad the taste for hobbies or handicrafts, one of which may ultimately give him a career and not leave him hopeless and helpless on going out into the world.
+
+The Badges are merely intended as an encouragement to a boy to take up a hobby or occupation and to make some sort of progress in it; they are a sign to an outsider that he has done so; they are, not intended to signify that he is a master in the craft he is tested in. If once we make Scouting into a formal scheme of serious instruction in efficiency, we miss the whole point and value of Scout training, and we trench on the work of the schools without the trained experts for carrying it out. We want to get all our boys along through cheery self-development from within and not through the imposition of formal instruction from without.
+
+But the object of the Badge System in Scouting is also to give the Scoutmaster an instrument by which he can stimulate keenness on the part of every and any boy to take up hobbies that can be helpful in forming his character or developing his skill.
+
+It is an instrument which - if applied with understanding and sympathy - is designed to give hope and ambition even to the dullest and most backward, who would otherwise be quickly outdistanced and so rendered hopeless in the race of life. It is for this reason that the standard of proficiency is purposely left undefined. Our standard for Badge earning is not the attainment of a certain level of quality of knowledge or skill, but the **amount of effort the boy has put into acquiting such knowledge or skill**. This brings the most hopeless case on to a footing of equal possibility with his more brilliant or better-off brother.
+
+An understanding Scoutmaster who has made a study of his boys' psychology can thus give to the boy an encouraging handicap, such as will give the dull boy a fair start alongside his betterbrained brother. And the backward boy, in whom the inferiority complex has been born through many failures, can have his first win or two made easy for him so that he is led to intensify his efforts. If he is a trier, no matter how clumsy, his examiner can accord him his Badge, and this generally inspires the boy to go on trying till he wins further Badges and becomes normally capable.
+
+The examination for Badges is not competitive, but just a test for the individual. The Scoutmaster and the examiner must therefore work in close harmony, judging each individual case on its merits, and discriminating where to be generous and where to tighten up.
+
+Some are inclined to insist that their Scouts should be firstrate before they can get a Badge. That is very right, in theory; you get a few boys pretty proficient in this way - but our object is to get all the boys interested. The Scoutmaster who puts his boys at an easy fence to begin with will find them jumping with confidence and keenness, whereas if he gives them an upstanding stone wall to begin, it makes them strong.
+
+At the same time, we do not recommend the other extreme, namely, that of almost giving away the Badges on very slight knowledge of the subjects. It is a matter where examiners should use their sense and discretion, keeping the main aim in view.
+
+There is always the danger of Badge-hunting supplanting Badge-earning. Our aim is to make boys into smiling, sensible, self-effacing, hardworking citizens, instead of showy, self-indulgent boys. The Scoutmaster must be on the alert to check Badge- hunting and to realise which is the Badge-hunter and which is the keen and earnest worker.
+
+Thus the success of the Badge System depends very largely on the Scoutmaster himself and his individual handling of it.
+
+## Self-Expression
+
+Our Art Badge is devised to lead boys on to express their ideas graphically from their own observation or imagination without attempting thereby to be or to imitate artists. By encouraging drawing, however crude, on the part of the youngster, he can be led on to recognise beauty in color or in form, to realise that even in sordid surroundings there may yet be light and shadow, color and beauty.
+
+A further stage in his education can be brought about by getting him to practice mental photography, that is to notice the details of a scene or incident or person, and fix these in his mind, and then to go and reproduce them on paper.
+
+This teaches observation in the highest degree. Personally I have found by prac- tice that one can develop a certain and considerable power in this direction.
+
+Rhythm is a form of art which comes naturally even to the untrained mind, whether it be employed in poetry or music or in body exercises. It gives a balance and order which has its natural appeal even and especially among those closest to nature-savages. In the form of music it is of course most obvious and universal. The Zulu War Song when sung by four or five thousand warriors is an example of rhythm, in music, poetry and bodily movement combined.
+
+The enjoyment of rendering music is common to all the human family, The song as a setting to words enables the soul to give itself expression which, when adequately done, brings pleasure both to the singer and to his hearer.
+
+Through his natural love of music the boy can be linked up with poetry and sentiment as by a natural and easy transition. It opens a ready means to the Scoutmaster of teaching happiness to his lads and at the same time of raising the tone of their thoughts.
+
+Play-acting also ought to form part of every boy's education for self-expression.
+
+At school I was encouraged to do a lot of play-acting and I have thanked my stars ever since that I did so. For one thing it taught me to learn yards of stuff by heart; also accustomed me to speak clearly and without nervousness before a lot of people; and it gave me the novel joy of being someone else for a time.
+
+It led one to know the beauties of Shakespeare and other authors, to feel, while expressing them, the emotions of joy and sorrow, love and sympathy.
+
+Above all it gave one the pleasure and happiness of giving pleasure to other people at times when they needed it.
+
+Many troops are giving entertainments in the winter months and are thus not only earning satisfactory additions to their funds, but are giving good training to their boys and pleasure to others.
+
+## From Hobby to Career
+
+Hobbies, handcraft, intelligence and health are preliminary steps for developing love of work and ability to carry on, which are essential to successful work. The second stage is fitting the young worker to the right kind of work.
+
+The best workers, like the happiest livers, look upon their work as a kind of game: the harder they play the more enjoyable it becomes. H. G. Wells has said:-
+
+> I have noticed that so called great men are really boys at heart, that is, they are boys in the eagerness of their enjoyment of their task. They work because they like to work, and thus their work is really play to them. The boy is not only father to the man, but he is the man and does not disappear at all.
+
+Ralph Parlette says truly:-
+
+> Play is Loving to do things, and Work is Having to do things.
+
+In Scouting we try to help the boys acquire this attitude, by making them person- ally enthused in subjects that appeal to them individually, and that will be helpful to them later on.
+
+We do this first and foremost through the fun and jollity of Scouting. The boys can then by progressive stages be led on naturally and unconsciously to develop themselves for their future.
+
 ## Development of Outlook: Reverence
 
 Development of outlook naturally begins with a respect for God, which we may best term "Reverence."

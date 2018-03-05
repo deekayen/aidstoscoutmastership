@@ -24,7 +24,7 @@ So much for the lines on which a boy can be practically prepared through Scoutin
 
 But this only prepares him. It is still in the power of his Scoutmaster to give him further help to making that career a successful one.
 
-First, by showing the lad ways by which he can perfect the superficial instruc- tion received as a Scout; whereby, for instance, he can develop his hobbies into handicrafts. The Scoutmaster can show him where to get higher technical educa- tion, how to get scholarships or apprenticeships, how to train himself for particular professions, how to invest his savings, how to apply for jobs, and so on.
+First, by showing the lad ways by which he can perfect the superficial instruction received as a Scout; whereby, for instance, he can develop his hobbies into handicrafts. The Scoutmaster can show him where to get higher technical education, how to get scholarships or apprenticeships, how to train himself for particular professions, how to invest his savings, how to apply for jobs, and so on.
 
 Secondly, by himself knowing the different kinds of employment agencies and how to use them, the terms of service in various professions, the Scoutmaster can give the lad invaluable help, by advising him, on his knowledge of his qualifications, as to which line of life he is best fitted for. All this means that the Scoutmaster must himself look around and inform himself fully on these and like points. By taking a little trouble himself he can make successful lives for many of his boys.
 
@@ -58,7 +58,7 @@ The guide book which Mr. Selfridge issues for the assistance of his employees sh
 
 Personally, I fully endorse these ideas, and if I were asked to sum up all in a single motto for guiding a boy to success in his profession, I should say—
 
-> *"Stick to it, and make yourself indispensable."
+> *"Stick to it, and make yourself indispensable."*
 
 On that text, you can preach a very practical sermon and frame a useful training. It is encouraging to a lad, even if he is only an errand boy, to know that if he does his errands so well that his master feels he could not get a better boy, he is safely on the road to promotion. But he must stick to it, and not be led aside by fits and disinclination or annoyance; if he gives way to these he will never succeed. Patience and perseverance win the day. "Softly, softly catchee monkey."
 
@@ -68,76 +68,70 @@ The first step towards getting a Scout to take up handiwork is most easily effec
 
 I commend to your notice the practical suggestions on this head, given by Mr. Ben Wilde, in the *Scoutmaster's Training Course* (No. 2 Birmingham), on the subject of "Badges and How They Should be Won."
 
-## Proficiency Badges (Merit Badges)
+## Technical Training
 
-Proficiency Badges are established with a view to developing in each lad the taste for hobbies or handicrafts, one of which may ultimately give him a career and not leave him hopeless and helpless on going out into the world.
+The following extract from *Ye Handi-craft Booklet*, by Leader A. Pruden, of the Kent Street (London) Troop, gives a sample of what Scoutmasters can do in the direciton of hobby training, which may be suggestive.
 
-The Badges are merely intended as an encouragement to a boy to take up a hobby or occupation and to make some sort of progress in it; they are a sign to an outsider that he has done so; they are, not intended to signify that he is a master in the craft he is tested in. If once we make Scouting into a formal scheme of serious instruction in efficiency, we miss the whole point and value of Scout training, and we trench on the work of the schools without the trained experts for carrying it out. We want to get all our boys along through cheery self-development from within and not through the imposition of formal instruction from without.
+In hints for helping a Scout to take up handicrafts the author writes—
 
-But the object of the Badge System in Scouting is also to give the Scoutmaster an instrument by which he can stimulate keenness on the part of every and any boy to take up hobbies that can be helpful in forming his character or developing his skill.
+"Let him first see the list of various hobbies for which Scout badges are granted, then let him carefully read in teh *Boy Scout Test Book*  all about the particular badges which most appeal to him. Having done this, it will not be difficult for him to decide which he will choose for his hobby."
 
-It is an instrument which - if applied with understanding and sympathy - is designed to give hope and ambition even to the dullest and most backward, who would otherwise be quickly outdistanced and so rendered hopeless in the race of life. It is for this reason that the standard of proficiency is purposely left undefined. Our standard for Badge earning is not the attainment of a certain level of quality of knowledge or skill, but the **amount of effort the boy has put into acquiting such knowledge or skill**. This brings the most hopeless case on to a footing of equal possibility with his more brilliant or better-off brother.
+"His Scoutmaster can probably put him in touch with some expert who will be pleased to help him forward. If he be fourteen years of age, in London, the County Council will let him join an evening class for his particular hobby, where will be unfolded to him soe of the secrets of his craft.
 
-An understanding Scoutmaster who has made a study of his boys' psychology can thus give to the boy an encouraging handicap, such as will give the dull boy a fair start alongside his betterbrained brother. And the backward boy, in whom the inferiority complex has been born through many failures, can have his first win or two made easy for him so that he is led to intensify his efforts. If he is a trier, no matter how clumsy, his examiner can accord him his Badge, and this generally inspires the boy to go on trying till he wins further Badges and becomes normally capable.
+"Even when only thirteen years of age, if he is skilled in his hobby, if he has the sanction of his headmaster, and provided he is in the seventh standard, he can gain entrance to the London County Council Central School of Arts and Crafts, Southampton Row, for Silversmiths' Work and allied crafts, which include Silversmithing, Goldsmiths' and Jewellers' Work, Diamond Mounting and Gem Setting, Art Metal Work, Chasing, Repoussé Work, Engraving, Die Sinking, Designing, Modelling, Metal Casting, Enamelling, etc.; further, if only in the sixth standard, he is eligible to join the school and learn the craft of Book Production, Printing, Binding, etc. There are small fees to pay, but in cases where the parents are poor, these are reduced or remitted. Then there is the Westminster Technical Institute of Cookery, where he can be trained as a chef.
 
-The examination for Badges is not competitive, but just a test for the individual. The Scoutmaster and the examiner must therefore work in close harmony, judging each individual case on its merits, and discriminating where to be generous and where to tighten up.
+"At the age of sixteen, when he leaves, his Scoutmaster should have little difficulty in arranging a five years' apprenticeship for him with a business firm of standing, where, for the whole of the period he will be receiving a wage. During this five years he can meet with success on every hand; he can gain London County Council money scholarships at the evening classes he would still attend; his friends would recognise his skill, and in spare time he would be able to make saleable articles of artistic merit.
 
-Some are inclined to insist that their Scouts should be firstrate before they can get a Badge. That is very right, in theory; you get a few boys pretty proficient in this way - but our object is to get all the boys interested. The Scoutmaster who puts his boys at an easy fence to begin with will find them jumping with confidence and keenness, whereas if he gives them an upstanding stone wall to begin, it makes them strong.
-
-At the same time, we do not recommend the other extreme, namely, that of almost giving away the Badges on very slight knowledge of the subjects. It is a matter where examiners should use their sense and discretion, keeping the main aim in view.
-
-There is always the danger of Badge-hunting supplanting Badge-earning. Our aim is to make boys into smiling, sensible, self-effacing, hardworking citizens, instead of showy, self-indulgent boys. The Scoutmaster must be on the alert to check Badge- hunting and to realise which is the Badge-hunter and which is the keen and earnest worker.
-
-Thus the success of the Badge System depends very largely on the Scoutmaster himself and his individual handling of it.
-
-## Self-Expression
-
-Our Art Badge is devised to lead boys on to express their ideas graphically from their own observation or imagination without attempting thereby to be or to imitate artists. By encouraging drawing, however crude, on the part of the youngster, he can be led on to recognise beauty in color or in form, to realise that even in sordid surroundings there may yet be light and shadow, color and beauty.
-
-A further stage in his education can be brought about by getting him to practice mental photography, that is to notice the details of a scene or incident or person, and fix these in his mind, and then to go and reproduce them on paper.
-
-This teaches observation in the highest degree. Personally I have found by prac- tice that one can develop a certain and considerable power in this direction.
-
-Rhythm is a form of art which comes naturally even to the untrained mind, whether it be employed in poetry or music or in body exercises. It gives a balance and order which has its natural appeal even and especially among those closest to nature-savages. In the form of music it is of course most obvious and universal. The Zulu War Song when sung by four or five thousand warriors is an example of rhythm, in music, poetry and bodily movement combined.
-
-The enjoyment of rendering music is common to all the human family, The song as a setting to words enables the soul to give itself expression which, when adequately done, brings pleasure both to the singer and to his hearer.
-
-Through his natural love of music the boy can be linked up with poetry and sentiment as by a natural and easy transition. It opens a ready means to the Scoutmaster of teaching happiness to his lads and at the same time of raising the tone of their thoughts.
-
-Play-acting also ought to form part of every boy's education for self-expression.
-
-At school I was encouraged to do a lot of play-acting and I have thanked my stars ever since that I did so. For one thing it taught me to learn yards of stuff by heart; also accustomed me to speak clearly and without nervousness before a lot of people; and it gave me the novel joy of being someone else for a time.
-
-It led one to know the beauties of Shakespeare and other authors, to feel, while expressing them, the emotions of joy and sorrow, love and sympathy.
-
-Above all it gave one the pleasure and happiness of giving pleasure to other people at times when they needed it.
-
-Many troops are giving entertainments in the winter months and are thus not only earning satisfactory additions to their funds, but are giving good training to their boys and pleasure to others.
-
-## From Hobby to Career
-
-Hobbies, handcraft, intelligence and health are preliminary steps for developing love of work and ability to carry on, which are essential to successful work. The second stage is fitting the young worker to the right kind of work.
-
-The best workers, like the happiest livers, look upon their work as a kind of game: the harder they play the more enjoyable it becomes. H. G. Wells has said:-
-
-> I have noticed that so called great men are really boys at heart, that is, they are boys in the eagerness of their enjoyment of their task. They work because they like to work, and thus their work is really play to them. The boy is not only father to the man, but he is the man and does not disappear at all.
-
-Ralph Parlette says truly:-
-
-> Play is Loving to do things, and Work is Having to do things.
-
-In Scouting we try to help the boys acquire this attitude, by making them person- ally enthused in subjects that appeal to them individually, and that will be helpful to them later on.
-
-We do this first and foremost through the fun and jollity of Scouting. The boys can then by progressive stages be led on naturally and unconsciously to develop themselves for their future.
+"At the age of twenty-one, when he arrives at man's estate, he should be able (according to his skill and talent) to secure a position at any figure between £100 and £300 per annum. It will thus be seen by every Scout who reads this booklet, that by the development of a hobby, he has the opportunity of laying the foundation for a successful and happy career."
 
 ## Employment
 
-The Scoutmaster, by watching and studying the individual character and ability of each boy, can to some extent recognise the line of life for which he is best fitted.
+The Scoutmaster, knowing his boy's character, can best advise him and his parents as to what line to take up.
 
-But he should realise that the question of employment is one for the parents and the boy himself to decide.
+In the first place, he should discriminate between those employments which offer a future to the boy and those which lead to nothing (so-called "Blind-Alley jobs"). These latter often bring in good money for the time being, to increase the weekly income of the family, and are, therefore, adopted for the boy by the parents regardless of the fact that they give no opening to him for a man's career afterwards.
 
-It is then a matter of consultation with the parents, and for cautioning them against putting their square peg of a son into a round hole of employment for the sake of immediate monetary return. Get them and the boy himself to look well ahead and to see ulterior possibilities that lie open to him, provided that his start is made on the right lines.
+Those which promise a future need careful selection with regard to the lad's capabilities, and they can be prepared for, while he is yet a Scout. A skilled employment is essentially better than an unskilled one for the boy's future success in life.
 
-Here it is important to discriminate between those employments which offer a future to the boy and those which lead to nothing - so-called "blind alley" jobs. These latter often bring in good money for the time being, to increase the weekly in- come of the family, and are, therefore, adopted for the boy by the parents regardless of the fact that they give no opening to him for a man's career afterwards.
+## Employment Agencies
 
-Those which promise a future need careful selection with regard to the lad's capabilities, and they can be prepared for, while he is yet a Scout. A skilled employment is essentially better than an unskilled one for the boy's future success in life. But care should be taken that consideration of this question is not left until the time is past for a boy to conform to the standards and rules for entering into the desired career.
+Employment agencies, and the means of getting suitable occupations for lads, differ according to localities, and the Scoutmaster, therefore, has to make himself acquanted with those prevailing in his neighbourhood.
+
+But in many centres it is found, by experience, best for the Scout authorities to form their own employment agencies. They can then place their lads out in situations best suited to their respective individual characters, and this give them unusually good chances of getting on.
+
+All this may, no doubt, give some little extra trouble to the Scoutmaster or to the Association, President, or Commissioner, but it is repaid by the consciousness that he has thereby been the means of staring the boy in life, with every prospect of success, where, in many a case, he would otherwise have drifted into a wasted existence.
+
+Surely such result would in itself be a sufficient reward to most men.
+
+## Industrial Ignorance
+
+> I often wonder whether it is not possible for some business-headed Scoutmaster to introduce into his Troop work some form of co-operative manufacture or industry—say, for one instance, toy-making—in which each Patrol would have its definite share, and which should be organised and carried on in such a way as to give practical insight and experience of running an industrial concern, showing how increased output brings increased returns, etc.
+
+Sir Lynden Macassey has lately pointed out in the *Times* that after conducting some 3000 industrial conferences, he is impressed with the fact that economic ignorance and fallacies among both employers and employed is largely responsible for the ruinous unress now prevalent.
+
+Workmen seem unable to grasp the principle that security of employment, good "real" wages, reasonable hours, and fair conditions of employment can be assured only by production.
+
+Employers generally have no conception of the demonstrable money value of treaing the man as entitled to a voice in regulating the conditions of his employment, nor of the definite mistake of treating him as an economic unit. Workmen tenaciously cling to the fallacy, long exploded in America, that restricted output relieves unemployment, enhances wages, and raises the status of labour.
+
+Wrong ideas and fallacies are actually and deliberately taught to children to Socialist schools. False doctrine, heresy, and schism are definitely preached to workers by means of leaflets and addresses so that antagonism is the prevailing spirit. It is all based on wrong grounds. We don't, in the Scouts, want to join in the politics which somehow get mixed up with th economic question, which somehow get mixed up with the economic question, but we do want to educate the coming man as to where his best interests lie and how, in serving his country's commercial interests, he is also serving his own.
+
+## Employment
+
+![](images/employment.jpg)
+
+## Programme For Study Patrol
+
+C> **Subject IV. "Making a Career"**
+
+| Theoretical Aim. | Instruction in Detail. |
+|------|------|
+| 5th Week.—*Ready obedience. Using wits and hands.* | Trek cart drill. Fire drill. Boat drill (rowing and sailing). |
+|------|------|
+| 6th Week.—*Good temper. Cheeriness. Keenness.* | Football and other team games (*e.g.* whale hunting), involving good temper, discipline, patience, sticking to the rules and playing for one's side and not for oneself. |
+|------|------|
+| 7th Week.—*Pioneering leading to hobbies. Resourcefulness.* | Use of axe. Camp expedients. Camp loom, Model bridge building. Improvising bridges, huts, tools, etc., out of materials available on the spot. |
+|------|------|
+| 8th Week.—*Hobbies leading to handicrafts. Exhibitions of articles made by Scouts.* | Working up for Badge Examination in the different crafts and trades in Technical or Evening Schools. How to apprentice boys. Use of Labour Bureaux and Employment Agencies. Conditions of service in Civil, Naval, Military, and Post Office, etc. |
+
+## Week-end Camps
+
+A trek cart to carry equipment. Cut your own wood for fires. Make your own bed with camp loom and other camp expedients. Camp fire yarns on theories. Practise details. Camp games.
