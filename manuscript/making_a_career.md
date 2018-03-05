@@ -1,8 +1,8 @@
 # IV. Making a Career
 
-From a national point of view we have too many drones in our social hive, both amon our well-to-do classes and among the poor.
+From a national point of view we have too many drones in our social hive, both among our well-to-do classes and among the poor.
 
-We are a comparatively small nation in numbers, and we need the services of every man of our race if we are to keep our place in teh heavy competition of trades and manufactures that is coming on around us. Yet there is a fearful waste of human material in Great Britain to-day. This is mainly due to ineffective training. The general mass of bosy are not taight to like work. Even when theya re taguth handicrafts or business qualities, they are not shown how to apply these to making a career, nor is the flame of ambition kindled in them. Where they happen to be square pegs they are too often placed in round holes. Whether it is the fault of the schoolmaster, or the parent, or the system of education, one cannot say, but the fact remains that it is so. Consequently, those boys who have not got these gifts naturally are allowed to drift and to become wasters. They are a misery to themselves and a burden—even in some cases, a danger—to the State. And the large proportion of those who do make some sort of a success would undoubtedly do better were they trained in a more practical way. In the Boy Scouts we can do something to remedy these evils. We can take some steps towards giving even the poorest boy a start and a chance in life equipped, at any rate, with hope and a handicraft.
+We are a comparatively small nation in numbers, and we need the services of every man of our race if we are to keep our place in the heavy competition of trades and manufactures that is coming on around us. Yet there is a fearful waste of human material in Great Britain to-day. This is mainly due to ineffective training. The general mass of boys are not taight to like work. Even when they are taught handicrafts or business qualities, they are not shown how to apply these to making a career, nor is the flame of ambition kindled in them. Where they happen to be square pegs they are too often placed in round holes. Whether it is the fault of the schoolmaster, or the parent, or the system of education, one cannot say, but the fact remains that it is so. Consequently, those boys who have not got these gifts naturally are allowed to drift and to become wasters. They are a misery to themselves and a burden—even in some cases, a danger—to the State. And the large proportion of those who do make some sort of a success would undoubtedly do better were they trained in a more practical way. In the Boy Scouts we can do something to remedy these evils. We can take some steps towards giving even the poorest boy a start and a chance in life equipped, at any rate, with hope and a handicraft.
 
 *How?* Naturally one's thoughts run to handcraft Badges. Though we call these "Handicrafts," they are, with our standard of tests, little more than "Hobbies." This, however, is part of our policy of leading the boys on with small and easy beginnings; and these Hobbies become more specialised as vocational training for the Senior Scouts. In the meantime, hobbies have their value; through these the boy learns to use his fingers and his brain, and to take a pleasure in work. For one boy these may remain his hobbies for years; for another they may lead to craftsmanship which will give him a career. In either case, the boy is not so likely to become a waster later on. Hobbies are an antidote to Satan's little games.
 
@@ -38,7 +38,7 @@ Mr. Gordon Selfridge has very kindly given me some ideas on training lads for ca
 
 One of the maxims which Mr. Selfridge impresses on his employees in this: "A man should always act as if he had a serious and clever competitor close behind him, so that he is continually putting forth his best efforts to keep the imaginary competitor from winning his place."
 
-The guide book which Mr. Selfridge issues for the assistance of his employees shows how the following points, which we inculcate in the Boy Scouts, are of greatest value to a young fellow in getting on in his career in a big business house. *Strict adherance to instructions,* with the feeling that such obedience is "playing the game" for the good of the business.
+The guide book which Mr. Selfridge issues for the assistance of his employees shows how the following points, which we inculcate in the Boy Scouts, are of greatest value to a young fellow in getting on in his career in a big business house. *Strict adherence to instructions,* with the feeling that such obedience is "playing the game" for the good of the business.
 
 *Energy* and making best use of the time available. "Waste of time where so many are employed is a very serious matter. If one hundred people waste only five minutes each day, the loss is more than eight hours, or a hundred days in a year."
 
@@ -70,13 +70,13 @@ I commend to your notice the practical suggestions on this head, given by Mr. Be
 
 ## Technical Training
 
-The following extract from *Ye Handi-craft Booklet*, by Leader A. Pruden, of the Kent Street (London) Troop, gives a sample of what Scoutmasters can do in the direciton of hobby training, which may be suggestive.
+The following extract from *Ye Handi-craft Booklet*, by Leader A. Pruden, of the Kent Street (London) Troop, gives a sample of what Scoutmasters can do in the direction of hobby training, which may be suggestive.
 
 In hints for helping a Scout to take up handicrafts the author writes—
 
-"Let him first see the list of various hobbies for which Scout badges are granted, then let him carefully read in teh *Boy Scout Test Book*  all about the particular badges which most appeal to him. Having done this, it will not be difficult for him to decide which he will choose for his hobby."
+"Let him first see the list of various hobbies for which Scout badges are granted, then let him carefully read in the *Boy Scout Test Book*  all about the particular badges which most appeal to him. Having done this, it will not be difficult for him to decide which he will choose for his hobby."
 
-"His Scoutmaster can probably put him in touch with some expert who will be pleased to help him forward. If he be fourteen years of age, in London, the County Council will let him join an evening class for his particular hobby, where will be unfolded to him soe of the secrets of his craft.
+"His Scoutmaster can probably put him in touch with some expert who will be pleased to help him forward. If he be fourteen years of age, in London, the County Council will let him join an evening class for his particular hobby, where will be unfolded to him some of the secrets of his craft.
 
 "Even when only thirteen years of age, if he is skilled in his hobby, if he has the sanction of his headmaster, and provided he is in the seventh standard, he can gain entrance to the London County Council Central School of Arts and Crafts, Southampton Row, for Silversmiths' Work and allied crafts, which include Silversmithing, Goldsmiths' and Jewellers' Work, Diamond Mounting and Gem Setting, Art Metal Work, Chasing, Repoussé Work, Engraving, Die Sinking, Designing, Modelling, Metal Casting, Enamelling, etc.; further, if only in the sixth standard, he is eligible to join the school and learn the craft of Book Production, Printing, Binding, etc. There are small fees to pay, but in cases where the parents are poor, these are reduced or remitted. Then there is the Westminster Technical Institute of Cookery, where he can be trained as a chef.
 
@@ -94,7 +94,7 @@ Those which promise a future need careful selection with regard to the lad's cap
 
 ## Employment Agencies
 
-Employment agencies, and the means of getting suitable occupations for lads, differ according to localities, and the Scoutmaster, therefore, has to make himself acquanted with those prevailing in his neighbourhood.
+Employment agencies, and the means of getting suitable occupations for lads, differ according to localities, and the Scoutmaster, therefore, has to make himself acquainted with those prevailing in his neighbourhood.
 
 But in many centres it is found, by experience, best for the Scout authorities to form their own employment agencies. They can then place their lads out in situations best suited to their respective individual characters, and this give them unusually good chances of getting on.
 
@@ -106,11 +106,11 @@ Surely such result would in itself be a sufficient reward to most men.
 
 > I often wonder whether it is not possible for some business-headed Scoutmaster to introduce into his Troop work some form of co-operative manufacture or industry—say, for one instance, toy-making—in which each Patrol would have its definite share, and which should be organised and carried on in such a way as to give practical insight and experience of running an industrial concern, showing how increased output brings increased returns, etc.
 
-Sir Lynden Macassey has lately pointed out in the *Times* that after conducting some 3000 industrial conferences, he is impressed with the fact that economic ignorance and fallacies among both employers and employed is largely responsible for the ruinous unress now prevalent.
+Sir Lynden Macassey has lately pointed out in the *Times* that after conducting some 3000 industrial conferences, he is impressed with the fact that economic ignorance and fallacies among both employers and employed is largely responsible for the ruinous unrest now prevalent.
 
 Workmen seem unable to grasp the principle that security of employment, good "real" wages, reasonable hours, and fair conditions of employment can be assured only by production.
 
-Employers generally have no conception of the demonstrable money value of treaing the man as entitled to a voice in regulating the conditions of his employment, nor of the definite mistake of treating him as an economic unit. Workmen tenaciously cling to the fallacy, long exploded in America, that restricted output relieves unemployment, enhances wages, and raises the status of labour.
+Employers generally have no conception of the demonstrable money value of treating the man as entitled to a voice in regulating the conditions of his employment, nor of the definite mistake of treating him as an economic unit. Workmen tenaciously cling to the fallacy, long exploded in America, that restricted output relieves unemployment, enhances wages, and raises the status of labour.
 
 Wrong ideas and fallacies are actually and deliberately taught to children to Socialist schools. False doctrine, heresy, and schism are definitely preached to workers by means of leaflets and addresses so that antagonism is the prevailing spirit. It is all based on wrong grounds. We don't, in the Scouts, want to join in the politics which somehow get mixed up with th economic question, which somehow get mixed up with the economic question, but we do want to educate the coming man as to where his best interests lie and how, in serving his country's commercial interests, he is also serving his own.
 
