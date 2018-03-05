@@ -1,26 +1,72 @@
 # IV. Making a Career
 
-There is today, as there has always been, a fearful waste of human material. This is. mainly due to ineffective training. The general mass of boys are not taught to like work. Even when they are taught handicrafts or business qualities, they are seldom shown how to apply these to making a career, nor is the flame of ambition kindled in them. Square pegs are too often placed in round holes.
+From a national point of view we have too many drones in our social hive, both amon our well-to-do classes and among the poor.
 
-Exactly where the fault lies one cannot say, but the fact remains that it is so.
+We are a comparatively small nation in numbers, and we need the services of every man of our race if we are to keep our place in teh heavy competition of trades and manufactures that is coming on around us. Yet there is a fearful waste of human material in Great Britain to-day. This is mainly due to ineffective training. The general mass of bosy are not taight to like work. Even when theya re taguth handicrafts or business qualities, they are not shown how to apply these to making a career, nor is the flame of ambition kindled in them. Where they happen to be square pegs they are too often placed in round holes. Whether it is the fault of the schoolmaster, or the parent, or the system of education, one cannot say, but the fact remains that it is so. Consequently, those boys who have not got these gifts naturally are allowed to drift and to become wasters. They are a misery to themselves and a burden—even in some cases, a danger—to the State. And the large proportion of those who do make some sort of a success would undoubtedly do better were they trained in a more practical way. In the Boy Scouts we can do something to remedy these evils. We can take some steps towards giving even the poorest boy a start and a chance in life equipped, at any rate, with hope and a handicraft.
 
-Consequently, those boys who have not got these gifts naturally are allowed to drift and to become wasters. They are a misery to themselves and a burden even in some cases, a danger to the State. And the large proportion of those who do make some sort of a success would undoubtedly do better were they trained in a more practical way.
-
-In the Boy Scouts we can do something to remedy these evils. We can take some steps towards giving even the poorest boy a start and a chance in life equipped, at any rate, with hope and a handicraft.
-
-How? Naturally one's thoughts run to handcraft Badges. Though we call these "Handicrafts," they are, with our standard of tests, little more than "Hobbies." This, however, is part of our policy of leading the boys on with small and easy beginnings; and these Hobbies become more specialised as vocational training for the Senior Scouts. In the meantime, hobbies have their value; through these the boy learns to use his fingers and his brain, and to take a pleasure in work. For one boy these may remain his hobbies for years; for another they may lead to craftsmanship which will give him a career. In either case, the boy is not so likely to become a waster later on. Hobbies are an antidote to Satan's little games.
+*How?* Naturally one's thoughts run to handcraft Badges. Though we call these "Handicrafts," they are, with our standard of tests, little more than "Hobbies." This, however, is part of our policy of leading the boys on with small and easy beginnings; and these Hobbies become more specialised as vocational training for the Senior Scouts. In the meantime, hobbies have their value; through these the boy learns to use his fingers and his brain, and to take a pleasure in work. For one boy these may remain his hobbies for years; for another they may lead to craftsmanship which will give him a career. In either case, the boy is not so likely to become a waster later on. Hobbies are an antidote to Satan's little games.
 
 But hobbies or handicrafts are not likely to make a career for a boy without the help of certain moral qualities. Thus, the craftsman must have self-discipline. He must adapt himself to the requirements of his employer and of his fellow-workers, he must keep himself sober, and efficient, and willing.
 
 He must have energy, and that depends on the amount he has of ambition, of skill, of resourcefulness, and of good health.
 
-Now, how do we apply these in the Boy Scout's training?
+Now, how do we apply these in the Boy Scout's training? The progressive steps by which you work up to them with the boys, begin on the right of the table.
 
-## Pioneering as a First Step
+| Qualities to be developed. | Attributes which they include. | Scout Law and badges which help them. | Scouting practices by which they are inculcated. |
+|------|------|------|------|
+| *(c)* **Self-Discipline.** | Obedience. Thrift. Sobriety. Good temper. Fortitude. | *Laws 2, 7, 8, 9, 10* | Scout law. Woodcraft lore and camp etiquette. Camp discipline. Ceremonial drill discipline. Dicipline of fire brigade, trek cart, boat, bridge-building drills. Savings bank. Non-smoking. Games requiring good temper, patience, and sticking to rules. |
+|------|------|------|------|
+| *(g)* **Energy** | Ambition. Health. Resourcefulness. Handicrafts. Cheeriness. | *Badges.* King's Scout. Sea Scout. Carpenter Plumber. Clerk. Cook. Printer. Mason. Basket-worker, etc. etc. | Camp resourcefulness, leading to Pioneering. Pioneering, leading to handicrafts. Health exercises (see Subject III.) Handicrafts. |
 
-The first step towards getting a Scout to take up handiwork is most easily effected in camp, in the practice of hut-building, tree-felling, bridge-building, improvising camp utensils, such as pot-hooks and plate-racks, etc., tent-making, mat-weaving with the camp-loom, and so on. The boys find these tasks to be practical and useful to their comfort in the camping season.
+## The Scoutmaster's Share
 
-After making a start on these, they will be the more keen to go in for such hobbies in the winter evenings, as will bring them Badges in return for proficiency, and money in return for skillful work. In that way they soon grow into ardent, energetic workers.
+So much for the lines on which a boy can be practically prepared through Scouting for making a career.
+
+But this only prepares him. It is still in the power of his Scoutmaster to give him further help to making that career a successful one.
+
+First, by showing the lad ways by which he can perfect the superficial instruc- tion received as a Scout; whereby, for instance, he can develop his hobbies into handicrafts. The Scoutmaster can show him where to get higher technical educa- tion, how to get scholarships or apprenticeships, how to train himself for particular professions, how to invest his savings, how to apply for jobs, and so on.
+
+Secondly, by himself knowing the different kinds of employment agencies and how to use them, the terms of service in various professions, the Scoutmaster can give the lad invaluable help, by advising him, on his knowledge of his qualifications, as to which line of life he is best fitted for. All this means that the Scoutmaster must himself look around and inform himself fully on these and like points. By taking a little trouble himself he can make successful lives for many of his boys.
+
+All this means that the Scoutmaster must himself look round and inform himself fully on these and like points. By taking a little trouble himself he can make successful lives for many of his boys.
+
+## The Necessary Qualities for Success
+
+Mr. Gordon Selfridge has very kindly given me some ideas on training lads for careers in large business houses. He is a great believer in the saying of Robert Louis Stevenson: "To travel hopefully is a better thing to arrive, and the true success is to labour."
+
+"One of the best things in this world is progress in the right direction."
+
+One of the maxims which Mr. Selfridge impresses on his employees in this: "A man should always act as if he had a serious and clever competitor close behind him, so that he is continually putting forth his best efforts to keep the imaginary competitor from winning his place."
+
+The guide book which Mr. Selfridge issues for the assistance of his employees shows how the following points, which we inculcate in the Boy Scouts, are of greatest value to a young fellow in getting on in his career in a big business house. *Strict adherance to instructions,* with the feeling that such obedience is "playing the game" for the good of the business.
+
+*Energy* and making best use of the time available. "Waste of time where so many are employed is a very serious matter. If one hundred people waste only five minutes each day, the loss is more than eight hours, or a hundred days in a year."
+
+*Courtesy*: "We would have the members of our staff courteous to one another." "Impress visitors or customers that they are welcome."
+
+"It is attractive to customers to be served by assistance whose manners show happiness in what they are doing."
+
+"Those who come merely to look, may become good customers if merchandise is shown them tactfully and cheerfully."
+
+*Intelligence*: "An employee should not be content merely to know his own groove in the business, but should develop some general knowledge of its other branches, and so be able both to advise customers and to quality himself for higher posts."
+
+*Neatness in dress and appearance*: "These go a long way to commending an applicant for employment or for promotion."
+
+*Perseverance*: "In my opinion, two of the qualities which will undoubtedly carry one far along the path of success are *concentration* and *perseverance*.
+
+"You cannot succeed by making an effort in fits and starts; on the contrary, a sustained and steady effort is necessary. Hence it comes about that the 'sticker' beats the merely clever man so often in the race of life."
+
+Personally, I fully endorse these ideas, and if I were asked to sum up all in a single motto for guiding a boy to success in his profession, I should say—
+
+> *"Stick to it, and make yourself indispensable."
+
+On that text, you can preach a very practical sermon and frame a useful training. It is encouraging to a lad, even if he is only an errand boy, to know that if he does his errands so well that his master feels he could not get a better boy, he is safely on the road to promotion. But he must stick to it, and not be led aside by fits and disinclination or annoyance; if he gives way to these he will never succeed. Patience and perseverance win the day. "Softly, softly catchee monkey."
+
+## "Pioneering" as a First Step
+
+The first step towards getting a Scout to take up handiwork is most easily effected in camp, in the practice of hut-building, tree-felling, bridge-building, improvising camp utensils, such as pot-hooks and plate-racks, etc., tent-making, mat-weaving with the camp-loom, and so on, as suggested in *Scouting for Boys*. The boys find these tasks to be practical and useful to their comfort in the camping season. After making a start on these, they will be the more keen to go in for such hobbies in the winter evenings, in the club, as will bring them badges in return for proficiency, and money in return for skilful work. In that way they soon grow into ardent, energetic workers.
+
+I commend to your notice the practical suggestions on this head, given by Mr. Ben Wilde, in the *Scoutmaster's Training Course* (No. 2 Birmingham), on the subject of "Badges and How They Should be Won."
 
 ## Proficiency Badges (Merit Badges)
 
@@ -83,18 +129,6 @@ Ralph Parlette says truly:-
 In Scouting we try to help the boys acquire this attitude, by making them person- ally enthused in subjects that appeal to them individually, and that will be helpful to them later on.
 
 We do this first and foremost through the fun and jollity of Scouting. The boys can then by progressive stages be led on naturally and unconsciously to develop themselves for their future.
-
-## The Scoutmaster's Share
-
-So much for the lines on which a boy can be practically prepared through Scouting for making a career.
-
-But this only prepares him. It is still in the power of his Scoutmaster to give him further help to making that career a successful one.
-
-First, by showing the lad ways by which he can perfect the superficial instruc- tion received as a Scout; whereby, for instance, he can develop his hobbies into handicrafts. The Scoutmaster can show him where to get higher technical educa- tion, how to get scholarships or apprenticeships, how to train himself for particular professions, how to invest his savings, how to apply for jobs, and so on.
-
-Secondly, by himself knowing the different kinds of employment agencies and how to use them, the terms of service in various professions, the Scoutmaster can give the lad invaluable help, by advising him, on his knowledge of his qualifications, as to which line of life he is best fitted for. All this means that the Scoutmaster must himself look around and inform himself fully on these and like points. By taking a little trouble himself he can make successful lives for many of his boys.
-
-It is encouraging to a lad, even if he is only an errand boy, to know that if he does his errands so well that his employer feels he could not get a better boy, he is safely on the road to promotion. But he must stick to it, and not be led aside by fits of disinclination or annoyance; if he gives way to these he will never succeed. Patience and perseverance win the day. "Softly, softly, catchee monkey."
 
 ## Employment
 
