@@ -8,11 +8,7 @@ Here is a summary of the steps by which Scouting helps to attain this object.
 |------|------|------|------|
 | **Reverence.** | Loyalty to God. Respect for others. Duty to neighbour. | Scout Promise. *Scout Law 3* | Personal example. Nature study. Good turns. "Missioner's Work." "Scout's Own."
 |------|------|------|------|
-| **Unselfishness.** | Chivalry. Kindliness. Self-sacrifice. Patriotism. Loyalty. Justice. | *Laws 3, 4, 5, 6. | Good turns. Friend to animals. First-aid. Life-saving. Fair play. Games. Path-finders. Marksmanship. Debating societies. Mock trials. Court of honour. Old Scouts kept in touch with the Scout law and ideals. |
-|------|------|------|------|
-| 7th Week.—*Pioneering leading to hobbies. Resourcefulness.* | Use of axe. Camp expedients. Camp loom, Model bridge building. Improvising bridges, huts, tools, etc., out of materials available on the spot. |
-|------|------|------|------|
-| 8th Week.—*Hobbies leading to handicrafts. Exhibitions of articles made by Scouts.* | Working up for Badge Examination in the different crafts and trades in Technical or Evening Schools. How to apprentice boys. Use of Labour Bureaux and Employment Agencies. Conditions of service in Civil, Naval, Military, and Post Office, etc. |
+| **Unselfishness.** | Chivalry. Kindliness. Self-sacrifice. Patriotism. Loyalty. Justice. | *Laws 3, 4, 5, 6.* | Good turns. Friend to animals. First-aid. Life-saving. Fair play. Games. Path-finders. Marksmanship. Debating societies. Mock trials. Court of honour. Old Scouts kept in touch with the Scout law and ideals. |
 
 ## Development of Outlook: Reverence
 
@@ -25,7 +21,9 @@ It must be remembered that we have in our Movement boys of almost every religiou
 The following is the attitude of the Scout Movement as regards religion, approved by the heads of all the different denominations on our Council:—
 
 "*(a) It is expected that every Scout shall belong to some religious denomination, and attend its services.*
+
 "*(b) Where a Troop is composed of members of one particular form of religion, it is hoped that the Scoutmaster will arrange such denomi- national religious observances and instruction as he, in consultation with its Chaplain or other religious authority, may consider best.*
+
 "*(c) Where a Troop consists of Scouts of various religions they should be encouraged to attend the service of their own denomination, and in camp, any form of daily prayer and of weekly Divine service should be of the simplest character, attendance being voluntary.*"
 
 If the Scoutmaster takes this pronouncement as his guide he cannot go far wrong.
@@ -64,11 +62,15 @@ Here, again, Scouting comes very practically to the aid of the teacher, and has 
 
 The practical way in which Scouting can help is through the following:—
 
-    *(a)* Personal example of the Scoutmaster.
-    *(b)* Nature study.
-    *(c)* Good turns.
-    *(d)* Missioner service.
-    *(e)* Retention of the older boy.
+*(a)* Personal example of the Scoutmaster.
+
+*(b)* Nature study.
+
+*(c)* Good turns.
+
+*(d)* Missioner service.
+
+*(e)* Retention of the older boy.
 
 C> *(a) Personal example.*
 
