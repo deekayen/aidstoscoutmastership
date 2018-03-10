@@ -1,134 +1,114 @@
 # V. Service for Others
 
-The attributed which we have so far been studying, as tending to make our boys into manly, healthy, happy working citizens, are, to a great extent, selfish ones designed for the good of the individual. We now come to the fourth branch of Scout training, through which, by developing his outlook, the boy gives out good to others.
+The attributes which we have so far been studying in the course of training, as tending to make our boys into manly, healthy, happy working citizens, are, to a great extent, selfish ones designed for the good of the individual. We now come to the fourth quality, and that is where, by developing his outlook, he gives out good to others.
 
-## Proficiency Badges (Merit Badges)
+Here is a summary of the steps by which Scouting helps to attain this object.
 
-Proficiency Badges are established with a view to developing in each lad the taste for hobbies or handicrafts, one of which may ultimately give him a career and not leave him hopeless and helpless on going out into the world.
-
-The Badges are merely intended as an encouragement to a boy to take up a hobby or occupation and to make some sort of progress in it; they are a sign to an outsider that he has done so; they are, not intended to signify that he is a master in the craft he is tested in. If once we make Scouting into a formal scheme of serious instruction in efficiency, we miss the whole point and value of Scout training, and we trench on the work of the schools without the trained experts for carrying it out. We want to get all our boys along through cheery self-development from within and not through the imposition of formal instruction from without.
-
-But the object of the Badge System in Scouting is also to give the Scoutmaster an instrument by which he can stimulate keenness on the part of every and any boy to take up hobbies that can be helpful in forming his character or developing his skill.
-
-It is an instrument which - if applied with understanding and sympathy - is designed to give hope and ambition even to the dullest and most backward, who would otherwise be quickly outdistanced and so rendered hopeless in the race of life. It is for this reason that the standard of proficiency is purposely left undefined. Our standard for Badge earning is not the attainment of a certain level of quality of knowledge or skill, but the **amount of effort the boy has put into acquiting such knowledge or skill**. This brings the most hopeless case on to a footing of equal possibility with his more brilliant or better-off brother.
-
-An understanding Scoutmaster who has made a study of his boys' psychology can thus give to the boy an encouraging handicap, such as will give the dull boy a fair start alongside his betterbrained brother. And the backward boy, in whom the inferiority complex has been born through many failures, can have his first win or two made easy for him so that he is led to intensify his efforts. If he is a trier, no matter how clumsy, his examiner can accord him his Badge, and this generally inspires the boy to go on trying till he wins further Badges and becomes normally capable.
-
-The examination for Badges is not competitive, but just a test for the individual. The Scoutmaster and the examiner must therefore work in close harmony, judging each individual case on its merits, and discriminating where to be generous and where to tighten up.
-
-Some are inclined to insist that their Scouts should be firstrate before they can get a Badge. That is very right, in theory; you get a few boys pretty proficient in this way - but our object is to get all the boys interested. The Scoutmaster who puts his boys at an easy fence to begin with will find them jumping with confidence and keenness, whereas if he gives them an upstanding stone wall to begin, it makes them strong.
-
-At the same time, we do not recommend the other extreme, namely, that of almost giving away the Badges on very slight knowledge of the subjects. It is a matter where examiners should use their sense and discretion, keeping the main aim in view.
-
-There is always the danger of Badge-hunting supplanting Badge-earning. Our aim is to make boys into smiling, sensible, self-effacing, hardworking citizens, instead of showy, self-indulgent boys. The Scoutmaster must be on the alert to check Badge- hunting and to realise which is the Badge-hunter and which is the keen and earnest worker.
-
-Thus the success of the Badge System depends very largely on the Scoutmaster himself and his individual handling of it.
-
-## Self-Expression
-
-Our Art Badge is devised to lead boys on to express their ideas graphically from their own observation or imagination without attempting thereby to be or to imitate artists. By encouraging drawing, however crude, on the part of the youngster, he can be led on to recognise beauty in color or in form, to realise that even in sordid surroundings there may yet be light and shadow, color and beauty.
-
-A further stage in his education can be brought about by getting him to practice mental photography, that is to notice the details of a scene or incident or person, and fix these in his mind, and then to go and reproduce them on paper.
-
-This teaches observation in the highest degree. Personally I have found by prac- tice that one can develop a certain and considerable power in this direction.
-
-Rhythm is a form of art which comes naturally even to the untrained mind, whether it be employed in poetry or music or in body exercises. It gives a balance and order which has its natural appeal even and especially among those closest to nature-savages. In the form of music it is of course most obvious and universal. The Zulu War Song when sung by four or five thousand warriors is an example of rhythm, in music, poetry and bodily movement combined.
-
-The enjoyment of rendering music is common to all the human family, The song as a setting to words enables the soul to give itself expression which, when adequately done, brings pleasure both to the singer and to his hearer.
-
-Through his natural love of music the boy can be linked up with poetry and sentiment as by a natural and easy transition. It opens a ready means to the Scoutmaster of teaching happiness to his lads and at the same time of raising the tone of their thoughts.
-
-Play-acting also ought to form part of every boy's education for self-expression.
-
-At school I was encouraged to do a lot of play-acting and I have thanked my stars ever since that I did so. For one thing it taught me to learn yards of stuff by heart; also accustomed me to speak clearly and without nervousness before a lot of people; and it gave me the novel joy of being someone else for a time.
-
-It led one to know the beauties of Shakespeare and other authors, to feel, while expressing them, the emotions of joy and sorrow, love and sympathy.
-
-Above all it gave one the pleasure and happiness of giving pleasure to other people at times when they needed it.
-
-Many troops are giving entertainments in the winter months and are thus not only earning satisfactory additions to their funds, but are giving good training to their boys and pleasure to others.
-
-## From Hobby to Career
-
-Hobbies, handcraft, intelligence and health are preliminary steps for developing love of work and ability to carry on, which are essential to successful work. The second stage is fitting the young worker to the right kind of work.
-
-The best workers, like the happiest livers, look upon their work as a kind of game: the harder they play the more enjoyable it becomes. H. G. Wells has said:-
-
-> I have noticed that so called great men are really boys at heart, that is, they are boys in the eagerness of their enjoyment of their task. They work because they like to work, and thus their work is really play to them. The boy is not only father to the man, but he is the man and does not disappear at all.
-
-Ralph Parlette says truly:-
-
-> Play is Loving to do things, and Work is Having to do things.
-
-In Scouting we try to help the boys acquire this attitude, by making them person- ally enthused in subjects that appeal to them individually, and that will be helpful to them later on.
-
-We do this first and foremost through the fun and jollity of Scouting. The boys can then by progressive stages be led on naturally and unconsciously to develop themselves for their future.
+| Qualities to be developed. | Attributes which they include. | Scout Law. | Scouting practices by which they are inculcated. |
+|------|------|------|------|
+| **Reverence.** | Loyalty to God. Respect for others. Duty to neighbour. | Scout Promise. *Scout Law 3* | Personal example. Nature study. Good turns. "Missioner's Work." "Scout's Own."
+|------|------|------|------|
+| **Unselfishness.** | Chivalry. Kindliness. Self-sacrifice. Patriotism. Loyalty. Justice. | *Laws 3, 4, 5, 6. | Good turns. Friend to animals. First-aid. Life-saving. Fair play. Games. Path-finders. Marksmanship. Debating societies. Mock trials. Court of honour. Old Scouts kept in touch with the Scout law and ideals. |
+|------|------|------|------|
+| 7th Week.—*Pioneering leading to hobbies. Resourcefulness.* | Use of axe. Camp expedients. Camp loom, Model bridge building. Improvising bridges, huts, tools, etc., out of materials available on the spot. |
+|------|------|------|------|
+| 8th Week.—*Hobbies leading to handicrafts. Exhibitions of articles made by Scouts.* | Working up for Badge Examination in the different crafts and trades in Technical or Evening Schools. How to apprentice boys. Use of Labour Bureaux and Employment Agencies. Conditions of service in Civil, Naval, Military, and Post Office, etc. |
 
 ## Development of Outlook: Reverence
 
 Development of outlook naturally begins with a respect for God, which we may best term "Reverence."
 
-Reverence to God and reverence for one's neighbour and reverence for oneself as a servant of God, is the basis of every form of religion. The method of expression of reverence to God varies with every sect and denomination. What sect or de- nomination a boy belongs to depends, as a rule, on his parents' wishes. It is they who decide. It is our business to respect their wishes and to second their efforts to inculcate reverence, whatever form of religion the boy professes.
+*Reverence to God and reverence for one's neighbour and reverence for oneself as a servant of God*, is the basis of every form of religion. The method of expression of reverence to God varies with every sect and denomination. What sect or denomination a boy belongs to depends, as a rule, on his parents' wishes. It is they who decide. It is our business to respect their wishes and to second their efforts to inculcate reverence, whatever form of religion the boy professes.
 
-There may be many difficulties relating to the definition of the religious training in our Movement where so many different denominations exist, and the details of the expression of duty to God have, therefore, to be left largely in the hands of the local authority. But there is no difficulty at all in suggesting the line to take on the human side, since direct duty to one's neighbour is implied in almost every form of belief.
+It must be remembered that we have in our Movement boys of almost every religious belief, and it is, therefore, impossible to lay down definite rules for guidance in religious teaching.
 
-The following is the attitude of the Scout Movement as regards religion, approved by the heads of all the different denominations on our Council:-
+The following is the attitude of the Scout Movement as regards religion, approved by the heads of all the different denominations on our Council:—
 
-(a) It is expected that every Scout shall belong to some religious denomination, and attend its services.
-(b) Where a Troop is composed of members of one particular form of religion, it is hoped that the Scoutmaster will arrange such denomi- national religious observances and instruction as he, in consultation with its Chaplain or other religious authority, may consider best.
-(c) Where a Troop consists of Scouts of various religions they should be encouraged to attend the service of their own denomination, and in camp, any form of daily prayer and of weekly Divine service should be of the simplest character, attendance being voluntary.
+"*(a) It is expected that every Scout shall belong to some religious denomination, and attend its services.*
+"*(b) Where a Troop is composed of members of one particular form of religion, it is hoped that the Scoutmaster will arrange such denomi- national religious observances and instruction as he, in consultation with its Chaplain or other religious authority, may consider best.*
+"*(c) Where a Troop consists of Scouts of various religions they should be encouraged to attend the service of their own denomination, and in camp, any form of daily prayer and of weekly Divine service should be of the simplest character, attendance being voluntary.*"
 
 If the Scoutmaster takes this pronouncement as his guide he cannot go far wrong.
 
-I am perfectly convinced that there are more ways than one by which reverence may be inculcated. The solution depends on the individual character and circum- stances of the boy, whether he is a "hooligan" or a "mother's darling." The training that may suit the one may not have much effect on the other. It is for the teacher, whether Scoutmaster or Chaplain, to select the right training.
+*Training*.—I am perfectly convinced that there are more ways than one by which reverence may be inculcated. The solution depends on the individual character and circum- stances of the boy, whether he is a "hooligan" or a "mother's darling." The training that may suit the one may not have much effect on the other. It is for the teacher, whether Scoutmaster or Chaplain, to select the right one.
 
-Religion can only be "caught," not "taught." It is not a dressing donned from outside, put on for Sunday wear. It is a true part of a boy's character, a development of soul, and not a veneer that may peel off. It is a matter of personality, of inner conviction, not of instruction.
+While I am speaking on religous training in England, please don't think that I am reiterating the theory which is so lavishly written on this particular subject. I speak from a fairly wide personal experience, having had some thousands of young men through my hands, and my experience only tallies with that of most authorities whom I have consulted. The conclusion come to is that the actions of a very large proportion of our men are, at present, very little guided by religious conviction.
 
-Speaking from a fairly wide personal experience, having had some thousands of young men through my hands, I have reached the conclusion that the actions of a very large proportion of our men are, at present, very little guided by religious conviction.
+This may be attributed to a great extent to the fact that often *instruction* instead of *education* has been employed in the religious training of the boy, and that in some instances the teaching is undertaken by people who have no real experience or proper training for the work.
 
-This may be attributed to a great extent to the fact that often instruction instead of education has been employed in the religious training of the boy.
+The consequence has been that the best boys in the Bible-class or Sunday School have grasped the idea, but in many cases they have, by perfection in the letter, missed the spirit of the teaching and have become zealots with a restricted outlook, while the majority have never really been enthused, and have, as soon as they have left the class or school, lapsed into indifference and irreligion, and there has been no hand to retain them at the critical time of their lives, *i.e.* sixteen to twenty-four.
 
-The consequence has been that the best boys in the Bibleclass or Sunday School have grasped the idea, but in many cases they have, by perfection in the letter, missed the spirit of the teaching and have become zealots with a restricted outlook, while the majority have never really been enthused, and have, as soon as they have left the class or school, lapsed into indifference and irreligion, and there has been no hand to retain them at the critical time of their lives, i.e., sixteen to twenty-four.
+The disappointing results in religious training have been recognised by the authorities, and the more thorough training now inaugurated for teachers in Sundy Schools and the like promises a very different result for religious education in the future.
 
-It is not given to every man to be a good teacher of religion, and often the most earnest are the greatest failures - and without knowing it.
+It is not given to every man to be a good teacher of religion, and often the most earnest are the greatest failure—and without knowing it.
 
 We have, fortunately, a number of exceptionally well-qualified men in this respect among our Scoutmasters, but there must also be a number who are doubtful as to their powers, and where a man feels this, he does well to get a Chaplain, or other experienced teacher, for his Troop.
 
 On the practical side, however, the Scoutmaster can in every case do an immense amount towards helping the religious teacher, just as he can help the schoolmaster by inculcating in his boys, in camp and club, the practical application of what they have been learning in theory in the school.
 
-In denominational Troops there is, as a rule, a Troop Chaplain, and the Scout- master should consult with him on all questions of religious instruction. For the purpose of its religious training, a service or class can be held, called a "Scouts' Own." This is a gathering of Scouts for the worship of God and to promote fuller realisation of the Scout Law and Promise, but supplementary to, and not in sub- stitution for, regular religious observances.
+In denominational Troops there is, as a rule, a Troop Chaplain, and the Scoutmaster should, as stated in Clause 2 of our Headquarters Religious Policy, consult with him on all questions of religious instruction.
 
-Many of our Troops, however, are interdenominational, having boys of different forms of belief in their ranks. Here the boys should be sent to their own clergy and pastors for denominational religious instruction.
+It should be clearly understood that a Troop can be confined entirely to one particular church or denomination (for example, Church of England officers and boys, Roman Cathoics, Wesleyans, or the like).
 
-Other Troops in slums and less-chance areas have lads of practically no religion of any kind, and their parents are little or no help to them. Naturally, these require different handling and methods of training from those boys in whom religion has been well grounded.
+For the purpose of its religious training, a service or class can be held, called a "Scouts' Own," "Scout Guild," or other such name as may be thought best. I commend to your careful consideration and study the valuable and interesting results of the Manchester Conference on the subject of "How to Run a Scouts' Own."
+
+The majority, however, of our Troops are interdenominational, having boys of different forms of belief in their ranks.
+
+For these Troops a Chaplain seems hardly required, because the boys should be sent to their own clergy and pastors for denominational religious instruction.
+
+Still, for many of these Troops a "Scout's Own" or class of some kind on a Sunday has been found very helpful for inspiring the right scout spirit, but they need to be organised and carried on with care and tact. THe Scoutmaster shoudl always consult the parents and the boys, clergy and pastors, as a first step.
+
+Other Troops in slums have lads of practically no religion of any kind, and their parents are little or no help to them. Naturally, these require different handling and methods of training from those boys in whom religion has been well grounded.
 
 Here, again, Scouting comes very practically to the aid of the teacher, and has already given extraordinarily good results.
 
-The way in which Scouting can help is through the following:-
+The practical way in which Scouting can help is through the following:—
 
-(a) Personal example of the Scoutmaster.
+    *(a)* Personal example of the Scoutmaster.
+    *(b)* Nature study.
+    *(c)* Good turns.
+    *(d)* Missioner service.
+    *(e)* Retention of the older boy.
 
-(b) Nature study.
+C> *(a) Personal example.*
 
-(c) Good Turns.
+It is a common saying that an Englishman hates parading his religion; that he is often a man who does his duties from a religious conviction, but does not "for a pretence make long prayers" in public.
 
-(d) Retention of the older boy.
+There is no doubt whatever that in the boys' eyes it is what a man does that counts and not so much what he says.
 
-**(a) Personal Example** - There is no doubt whatever that in the boys' eyes it is what a man does that counts and not so much what he says. A Scoutmaster has, therefore, the greatest responsibility on his shoulders for doing the right thing from the right motives, and for letting it be seen that he does so, but without making a parade of it. Here the attitude of elder brother rather than of teacher tells with the greater force.
+A Scoutmaster has, therefore, the greatest responsibility on his shoulders for doing the right thing from the right motives, and for letting it be seen that he does so, but without making a parade of it.
 
-**(b) Nature Study** - There are sermons in the observation of Nature, say, in bird life, the formation of every feather identical with that of the same species 10,000 miles away, the migration, the nesting, the colouring of the egg, the growth of the young, the mothering, the feeding, the flying power-all done without the aid of man, but under the law of the Creator; these are the best of sermons for boys.
+Here the attitude of elder brother rather than of teacher tells with the greater force.
+
+C> *(b) Nature study.*
+
+It has been said that "more men have been led to God through His handiwork than have ever been introduced by the preacher."
+
+"Sermons in stones?" Yes, there are sermons in the observation of Nature, say, in bird life, the formation of every feather identical with that of the same species 10,000 miles away, the migration, the nesting, the colouring of the egg, the growth of the young, the mothering, the feeding, the flying power—all done without the aid of man, but under the law of the Creator; these are the best of sermons for boys.
 
 The flowers in their orders, and plants of every kind, their buds and bark, the animals and their habits and species; then the stars in the heavens, with their appointed places and ordered moves in space, give to every one the first conception of Infinity and of the vast scheme of his Creator where man is of so small account. All these have a fascination for boys, which appeals in an absorbing degree to their inquisitiveness and powers of observation, and leads them directly to recognise the hand of God in this world of wonders, if only some one introduces them to it.
 
-The wonder to me of all wonders is how some teachers have neglected this easy and unfailing means of education and have struggled to impose Biblical instruction as the first step towards getting a restless, full-spirited boy to think of higher things.
+The wonder to me of all wonders is how some teachers have neglected this easy and unfailing means of *education* and have struggled to impose Biblical *instruction* as the first step towards getting a restless, full-spirited boy to think of higher things.
 
-**(c) Good Turns** - With a little encouragement on the part of the Scoutmaster the practice of daily Good Turns soon becomes a sort of fashion with boys, and it is the very best step towards making a Christian in fact, and not merely in theory. The boy has a natural instinct for good if he only sees a practical way to exercise it, and this Good Turn business meets it and develops it, and in developing it brings out the spirit of Christian charity towards his neighbour.
+C> *(c) Good Turns.*
+
+With a little encouragement on the part of the Scoutmaster the practice of daily Good Turns soon becomes a sort of fashion with boys, and it is the very best step towards making a Christian in fact, and not merely in theory. The boy has a natural instinct for good if he only sees a practical way to exercise it, and this Good Turn business meets it and develops it, and in developing it brings out the spirit of Christian charity towards his neighbour.
 
 This expression of his will to good, is more effective, more natural to the boy, and more in accordance with the Scout method than his passive acceptance of instructive precepts.
 
-**(d) Retention of the Older Boy** - So soon as the ordinary boy begins to get a scholastic knowledge of reading, writing, and arithmetic, he is sent out into the world, as fit and equipped for making his career as a good working citizen. After leaving school, excellent technical schools are generally open to the boy, as well as continuation classes, if he likes to go to them, or if his parents insist on his attending after his day's work is over. The best boys go, and get a good final polish.
+C> *(d) Missioner service.*
 
-But what about the average and the bad? They are allowed to slide away-just at the one period of their life when they most of all need continuation and completion of what they have been learning, just at the time of their physical, mental and moral change into what they are going to be for the rest of their lives.
+The development is then carried on to a higher and wider standard through the practice of the test-items of the Missioners' Social Service Badge.
+
+C> *(e) Retention of the older boy.*
+
+So soon as the ordinary boy begins to get a scholastic knowledge of reading, writing, and arithmetic, he is sent out into the world, at the age of fourteen, as fit and equipped for making his career as a good working citizen.
+
+Excellent technical schools are open to him, as well as continuation classes, if he likes to go to them, or if his parents insist on his attending after his day's work is over. The best boys go, and get a good final polish.
+
+But what about the average and the bad? They are allowed to slide away—just at the one period of their life when they most of all need continuation and completion of what they have been learning, just at the time of their physical, mental and moral change into what they are going to be for the rest of their life.
+
+The new Education Act is to correct this, but only promises to do so in a technical and partial manner.
 
 This is where the Scout Movement can do so much for the lad, and it is for this important work that we are doing all we can to organise the Senior Scouts in order to retain the boy, to keep in touch with him, and to inspire him with the best ideals at this, his crossroads for good or evil.
 
@@ -226,3 +206,65 @@ A practical step in ensuring this is not to vote by show of hands, where the hes
 In the same, way mock trials or arbitration of quarrels, if carried out seriously and on the lines of a law court, are of the greatest value in teaching the boys the same idea of justice and fair play, and also give them a minor experience of what their civic duties may be as jurymen or witnesses later on. The Court of Honour in the Troop is another step in the same direction, and as the boys here have a real responsibility by being members of the Court, the seriousness of their views is brought home to them a11 the more, and encourages them to think out carefully the right line to take when they have heard all the arguments on both sides.
 
 Thus a Scoutmaster, who uses his ingenuity towards the end of teaching fair play, unselfishness and sense of duty to others, may make ample opportunities, whether indoors or out, for training his Scouts. Of all the subjects with which we are dealing, I believe this to be one of the most important towards self-governing citizenship, though I fear I have only touched upon it in a very sketchy manner.
+
+## Proficiency Badges (Merit Badges)
+
+Proficiency Badges are established with a view to developing in each lad the taste for hobbies or handicrafts, one of which may ultimately give him a career and not leave him hopeless and helpless on going out into the world.
+
+The Badges are merely intended as an encouragement to a boy to take up a hobby or occupation and to make some sort of progress in it; they are a sign to an outsider that he has done so; they are, not intended to signify that he is a master in the craft he is tested in. If once we make Scouting into a formal scheme of serious instruction in efficiency, we miss the whole point and value of Scout training, and we trench on the work of the schools without the trained experts for carrying it out. We want to get all our boys along through cheery self-development from within and not through the imposition of formal instruction from without.
+
+But the object of the Badge System in Scouting is also to give the Scoutmaster an instrument by which he can stimulate keenness on the part of every and any boy to take up hobbies that can be helpful in forming his character or developing his skill.
+
+It is an instrument which - if applied with understanding and sympathy - is designed to give hope and ambition even to the dullest and most backward, who would otherwise be quickly outdistanced and so rendered hopeless in the race of life. It is for this reason that the standard of proficiency is purposely left undefined. Our standard for Badge earning is not the attainment of a certain level of quality of knowledge or skill, but the **amount of effort the boy has put into acquiting such knowledge or skill**. This brings the most hopeless case on to a footing of equal possibility with his more brilliant or better-off brother.
+
+An understanding Scoutmaster who has made a study of his boys' psychology can thus give to the boy an encouraging handicap, such as will give the dull boy a fair start alongside his betterbrained brother. And the backward boy, in whom the inferiority complex has been born through many failures, can have his first win or two made easy for him so that he is led to intensify his efforts. If he is a trier, no matter how clumsy, his examiner can accord him his Badge, and this generally inspires the boy to go on trying till he wins further Badges and becomes normally capable.
+
+The examination for Badges is not competitive, but just a test for the individual. The Scoutmaster and the examiner must therefore work in close harmony, judging each individual case on its merits, and discriminating where to be generous and where to tighten up.
+
+Some are inclined to insist that their Scouts should be firstrate before they can get a Badge. That is very right, in theory; you get a few boys pretty proficient in this way - but our object is to get all the boys interested. The Scoutmaster who puts his boys at an easy fence to begin with will find them jumping with confidence and keenness, whereas if he gives them an upstanding stone wall to begin, it makes them strong.
+
+At the same time, we do not recommend the other extreme, namely, that of almost giving away the Badges on very slight knowledge of the subjects. It is a matter where examiners should use their sense and discretion, keeping the main aim in view.
+
+There is always the danger of Badge-hunting supplanting Badge-earning. Our aim is to make boys into smiling, sensible, self-effacing, hardworking citizens, instead of showy, self-indulgent boys. The Scoutmaster must be on the alert to check Badge- hunting and to realise which is the Badge-hunter and which is the keen and earnest worker.
+
+Thus the success of the Badge System depends very largely on the Scoutmaster himself and his individual handling of it.
+
+## Self-Expression
+
+Our Art Badge is devised to lead boys on to express their ideas graphically from their own observation or imagination without attempting thereby to be or to imitate artists. By encouraging drawing, however crude, on the part of the youngster, he can be led on to recognise beauty in color or in form, to realise that even in sordid surroundings there may yet be light and shadow, color and beauty.
+
+A further stage in his education can be brought about by getting him to practice mental photography, that is to notice the details of a scene or incident or person, and fix these in his mind, and then to go and reproduce them on paper.
+
+This teaches observation in the highest degree. Personally I have found by prac- tice that one can develop a certain and considerable power in this direction.
+
+Rhythm is a form of art which comes naturally even to the untrained mind, whether it be employed in poetry or music or in body exercises. It gives a balance and order which has its natural appeal even and especially among those closest to nature-savages. In the form of music it is of course most obvious and universal. The Zulu War Song when sung by four or five thousand warriors is an example of rhythm, in music, poetry and bodily movement combined.
+
+The enjoyment of rendering music is common to all the human family, The song as a setting to words enables the soul to give itself expression which, when adequately done, brings pleasure both to the singer and to his hearer.
+
+Through his natural love of music the boy can be linked up with poetry and sentiment as by a natural and easy transition. It opens a ready means to the Scoutmaster of teaching happiness to his lads and at the same time of raising the tone of their thoughts.
+
+Play-acting also ought to form part of every boy's education for self-expression.
+
+At school I was encouraged to do a lot of play-acting and I have thanked my stars ever since that I did so. For one thing it taught me to learn yards of stuff by heart; also accustomed me to speak clearly and without nervousness before a lot of people; and it gave me the novel joy of being someone else for a time.
+
+It led one to know the beauties of Shakespeare and other authors, to feel, while expressing them, the emotions of joy and sorrow, love and sympathy.
+
+Above all it gave one the pleasure and happiness of giving pleasure to other people at times when they needed it.
+
+Many troops are giving entertainments in the winter months and are thus not only earning satisfactory additions to their funds, but are giving good training to their boys and pleasure to others.
+
+## From Hobby to Career
+
+Hobbies, handcraft, intelligence and health are preliminary steps for developing love of work and ability to carry on, which are essential to successful work. The second stage is fitting the young worker to the right kind of work.
+
+The best workers, like the happiest livers, look upon their work as a kind of game: the harder they play the more enjoyable it becomes. H. G. Wells has said:-
+
+> I have noticed that so called great men are really boys at heart, that is, they are boys in the eagerness of their enjoyment of their task. They work because they like to work, and thus their work is really play to them. The boy is not only father to the man, but he is the man and does not disappear at all.
+
+Ralph Parlette says truly:-
+
+> Play is Loving to do things, and Work is Having to do things.
+
+In Scouting we try to help the boys acquire this attitude, by making them person- ally enthused in subjects that appeal to them individually, and that will be helpful to them later on.
+
+We do this first and foremost through the fun and jollity of Scouting. The boys can then by progressive stages be led on naturally and unconsciously to develop themselves for their future.
