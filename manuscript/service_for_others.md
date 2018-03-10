@@ -114,9 +114,7 @@ This is where the Scout Movement can do so much for the lad, and it is for this 
 
 ## Self-Respect
 
-In speaking of the forms of reverence which the boy should be encouraged to develop, we must not omit the important one of reverence for himself, that is self-respect in its highest form.
-
-This, again, can well be inculcated through nature study as a preliminary step. The anatomy of plants, or birds, or shell-fish may be studied and shown to be the wonderful work of the Creator. Then the boy's own anatomy can be studied in a similar light; the skeleton and the flesh, muscle, nerves, and sinews built upon it, the blood flow and the breathing, the brain and control of action, all repeated, down to the smallest details, in millions of human beings, yet no two are exactly alike in face or finger prints. Raise the boy's idea of the wonderful body which is given to him to keep and develop as God's own handiwork and temple; one which is physically capable of good work and brave deeds if guided by sense of duty and chivalry, that is by a high moral tone.
+In speaking of the forms of reverence which the boy should be encouraged to develop, we must not omit the important one of reverence for himself, that is self-respect in its highest form. This can well be inculcated through nature study as a preliminary step. The anatomy of plants, or birds, or shell-fish may be studied and shown to be the wonderful work of the Creator. Then the boy's own anatomy can be studied in a similar light; the skeleton and the flesh, muscle, nerves, and sinews built upon it, the blood flow and the breathing, the brain and control of action, all repeated, down to the smallest details, in millions of human beings, yet no two are exactly alike in face or finger prints. Raise the boy's idea of the wonderful body which is given to him to keep and develop as God's own handiwork and temple; one which is physically capable of good work and brave deeds if guided by sense of duty and chivalry, that is by a high moral tone.
 
 Thus is engendered self-respect.
 
