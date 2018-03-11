@@ -122,17 +122,47 @@ Thus is engendered self-respect.
 
 This, of course, must not be preached to a lad in so many words and then left to fructify, but should be inferred and expected in all one's dealings with him. Especially it can be promoted by giving the boy responsibility, and by trusting him as an honourable being to carry out his duty to the best of his ability, and by treating him with respect and consideration, without spoiling him.
 
+## Loyalty
+
+In addition to reverence to Go and to one's neighbour, loyalty to the King as head of our national government and of the British race is essential.
+
+Loyalty to the King signifies loyalty to our country and our kind. Political excitement is apt to turn ecstatic people's minds to such a degree that, in seeing their own point of view, they are apt to forget that of others, and therefore they fail to realise the danger it may bring to the welfare and happiness of their fellow countrymen later on. Loyalty to Kind and country is of the highest value for keeping men's views balanced and in the proper perspective. The external signs, such as saluting the flag, cheering the King, and so on, help in promoting this, but the essential thing is the development of the true spirit which underlies such demonstrations. I had a little argument lately with one who as a free-born Briton did not see why he should promise allegiance to the King. I asked him whether he proposed to be loyal to the Empire or would he be willing to let down one of the Overseas British States if it were in danger? Oh no, he was all for the national prosperity. But then an Empire, like every other national organisation, needs a head to it: even the Bolsheviks, with their equality for all, have a leader (who besides having unlimited motor cars and wives, has the power of life and death over his subjects). Yes, that's right, a head is necessary, but he should be elected by the voice of the people. Well, do you think Canada will agree to have as their head a man from Australia, or would Australia accept a favourite Conservative M.P. from England? I don't think. Has the office of King ever been abused or failed in success under its present limiting constitution? He could not, for instance, have attended the Peace Conference at Versailles and have laid down a policy for his country to follow, in the way that a more autocratic ruler was able to do.
+
+\[Indeed it is whispered that when President Wilson was in Paris a message was sent to him from New York to the effect that if he did not return at once they would be starting to form a Republic in America!\]
+
+Loyalty to himself on the part of the boy—that is, to his better conscience—is the great step to self-realisation. Loyalty to others is proved by self-Service for others and self-sacrifice must necessarily include readiness to serve one's country should the necessity arise for protecting it against foreign aggression; that is the duty of every citizen. But this does not mean that he is to develop a blood-thirsty or aggressive spirit, nor that the boy need be trained to military dutites and ideas of fighting. This can be left until he is of an age to judge for himself. At the same time rifle practice is a good preparation and does a boy no harm morally; on the contrary, it does him good, since it promotes concentration, steadiness of nerve eyesight, exactness, etc. More-over, it will stand him in good stead should he ever be required to help in the defence of his country, or, as will frequently be the case in a colony, in defence of his home against raids by savages, or, on board ship, by pirates.
+
+## Go by the Pace of the Slowest
+
+Once I asked a Scout coming away from a special Scout church service what was the text on which the preacher had spoken?
+
+"Quit ye like men," the boy replied.
+
+"Yes, and what does that mean?"
+
+"Well, I am not quite sure, but I think that it means that going on quitting the church we were to go out like grown-ups."
+
+The preacher had had his opportunity with a boy who noticed the text, but he had travelled into phrases and ideas far above the understanding of his audience. It is a mistake so obvious that one might think that few would fall into it, but, unfortunately, the opposite is the case. High-flying is not only common, but usual. I have seen prayer books for boys full of long erudite supplications. I would rather hear the familiar, "Oh, Lord, grant there may be some of the pudding left for me when it has gone the round," than hear a little fellow recite by heart petitions which are meaningless to him.
+
+Let his prayers come *from* the heart, not said by heart.
+
+The main principles which I personally prefer in prayers are that they should be short, expressed in the simplest language, and based on one of two ideas—
+
+To thank God for blessings or enjoyments received.
+
+To ask for moral protection, strength, or guidance in something for God in return.
+
+There may be many difficulties as regard the definition of the religious training in our Movement where so many different denominations exist, and the details of expression of duty to God have, therefore, to be left largely in the hands of the local authority. But there is no difficulty at all in suggesting the line to take on the human side, since direct duty to once's neighbour is implied in almost every form of belief. Scouting is a real help in the practice of this. As a first point it is not confined to giving charity—it needs more than that—it often demands self-sacrifice to be effective.
+
 ## Selfishness
 
-If I were asked what is the prevailing vice in the world I should say - Selfishness. You may not agree with this at first sight, but look into it and I believe you will come to the same conclusion. Most crimes, as recognised by law, come from the indulgence of selfishness, from a desire to acquire, to defeat, or to wreak vengeance. The average man will gladly give a contribution to feed the poor and will feel satisfied that he has then done his duty, but he is not going to dock himself of his own food and good wine to effect a saving for that purpose.
+If I were asked what is the prevailing vice in the world I should say—Selfishness. You may not agree with this at first sight, but look into it and I believe you will come to the same conclusion. Most crimes, as recognised by law, come from the indulgence of selfishness, from a desire to acquire, to defeat, or to wreak vengeance. The average man will gladly give a contribution to feed the poor and will feel satisfied that he has then done his duty, but he is not going to dock himself of his own food and good wine to effect a saving for that purpose.
 
-Selfishness exists in a thousand different ways. Take, for instance, party politics. Men here get to see a question, which obviously has two sides to it, exactly as if there were only one possible side, namely, their own, and they then get to hate another man who looks upon it from the other side. The result may lead men on to commit the greatest crimes under high-sounding names. In the same way, wars between nations have come about from neither party being able to see the other's point of view, being obsessed entirely by their own interests. Strikes, too, and lockouts are frequently the outcome of developed selfishness. In many cases, employers have failed to see that a hard-working man should, in justice, get a share of the goods of the world in return for his effort, and not be condemned to perpetual servitude simply to secure a certain margin of profits for the shareholders. On the other hand, the worker has to recognise that without capital there would be no work on a large scale, and there can be no capital without some return to the subscribers for the risks they face in subscribing.
+Selfishness exists in a thousand different ways. Take, for instance, party politics. Men here get to see a question, which obviously has two sides to it, exactly as if there were only one possible side, namely, their own, and they then get to hate another man who looks upon it from the other side. The result may lead men on to commit the greatest crimes under high-sounding names. In the same way, wars between nations have come about from neither party being able to see the other's point of view, being obsessed entirely by their own interests. Strikes, too, and lock-outs are frequently the outcome of developed selfishness. In many cases, employers have failed to see that a hard-working man should, in justice, get a share of the goods of the world in return for his effort, and not be condemned to perpetual servitude simply to secure a certain margin of profits for the shareholders. On the other hand, the worker has to recognise that without capital there would be no work on a large scale, and there can be no capital without some return to the subscribers for the risks they face in subscribing.
 
-In one's newspaper every day one sees examples of selfishness when one reads the letters of these small-minded men who, at every little grievance, rush headlong to
+In one's newspaper every day one sees examples of selfishness when one reads the letters of these small-minded men who, at every little grievance, rush headlong to "write to the papers." And so it goes on, down to the children playing their games in the streets; the moment that one is dissatisfied at not getting his share of winning he abruptly leaves the scene remarking: "I shan't play any more!" The fact that he upsets the fun of the others does not appeal to him—unless it be satisfying to his spite.
 
-"write to the papers." And so it goes on, down to the children playing their games in the streets; the moment that one is dissatisfied at not getting his share of winning he abruptly leaves the scene remarking: "I shan't play any more!" The fact that he upsets the fun of the others does not appeal to him - unless it be satisfying to his spite.
-
-## To Eradicate Selfishness - The Good Turn Habit
+## To Eradicate Selfishness
 
 The Scouting practices tend in a practical way to educate the boy out of the groove of selfishness. Once he becomes charitable he is well on the way to overcome or to eradicate the danger of this habit.
 
