@@ -1,6 +1,6 @@
 # Appendix
 
-Note. - The following are sample questions such as an examiner could put to candidates for Scoutmasters' Diplomas, or students could put to themselves on the different subjects of study given in the foregoing pages.
+**Note**. - The following are sample questions such as an examiner could put to candidates for Scoutmasters' Diplomas, or students could put to themselves on the different subjects of study given in the foregoing pages.
 
 *(Questions to be Answered by Candidates)*
 
