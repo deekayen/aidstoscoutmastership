@@ -124,7 +124,7 @@ This, of course, must not be preached to a lad in so many words and then left to
 
 ## Loyalty
 
-In addition to reverence to Go and to one's neighbour, loyalty to the King as head of our national government and of the British race is essential.
+In addition to reverence to God and to one's neighbour, loyalty to the King as head of our national government and of the British race is essential.
 
 Loyalty to the King signifies loyalty to our country and our kind. Political excitement is apt to turn ecstatic people's minds to such a degree that, in seeing their own point of view, they are apt to forget that of others, and therefore they fail to realise the danger it may bring to the welfare and happiness of their fellow countrymen later on. Loyalty to Kind and country is of the highest value for keeping men's views balanced and in the proper perspective. The external signs, such as saluting the flag, cheering the King, and so on, help in promoting this, but the essential thing is the development of the true spirit which underlies such demonstrations. I had a little argument lately with one who as a free-born Briton did not see why he should promise allegiance to the King. I asked him whether he proposed to be loyal to the Empire or would he be willing to let down one of the Overseas British States if it were in danger? Oh no, he was all for the national prosperity. But then an Empire, like every other national organisation, needs a head to it: even the Bolsheviks, with their equality for all, have a leader (who besides having unlimited motor cars and wives, has the power of life and death over his subjects). Yes, that's right, a head is necessary, but he should be elected by the voice of the people. Well, do you think Canada will agree to have as their head a man from Australia, or would Australia accept a favourite Conservative M.P. from England? I don't think. Has the office of King ever been abused or failed in success under its present limiting constitution? He could not, for instance, have attended the Peace Conference at Versailles and have laid down a policy for his country to follow, in the way that a more autocratic ruler was able to do.
 
@@ -164,55 +164,19 @@ In one's newspaper every day one sees examples of selfishness when one reads the
 
 ## To Eradicate Selfishness
 
-The Scouting practices tend in a practical way to educate the boy out of the groove of selfishness. Once he becomes charitable he is well on the way to overcome or to eradicate the danger of this habit.
+The Scouting practices suggested in the table of training given in p. 18 tend in a practical way to educate the boy out of the groove of selfishness. Once he becomes charitable he is well on the way to overcome or eradicate the danger of this habit. The minor good turns which are part of his faith are in themselves the first step. Nature study and making friends with animals increase the kindly feeling within him and overcome the trait of cruelty which is said to be inherent in every boy (although, personally, I am not sure that it is so general as is supposed). From these minor good turns he goes on to learn first aid and help to the injured, and in the natural sequence of learning how to save life in the case of accidents, he develops a sense of duty to others and a readiness to sacrifice himself in danger. This, again, leads up to the idea of sacrifice for others, for his home, and for his country, thereby leading to patriotism and loyalty of a higher type than that of merely ecstatic flag-waving.
 
-The Promise that a Scout makes on joining has as its first point: "To do my duty to God." Note that it does not say "To be loyal to God," since this would merely be a state of mind, but to do something, which is the positive, active attitude.
+## Fair Play
 
-The main method in the Boy Scout Movement is to give some form of positive training rather than merely to inculcate negative precepts, since the boy is always ready to do rather than to digest. Therefore, we put into his activities the practice of Good Turns in his daily life as a foundation of future goodwill and helpfulness to others. The religious basis underlying this is common to all denominations, and we, therefore, interfere with the form of none.
+The idea of fair play is above all the one which can be best instilled into boys and leads them to that strong view of justice which should be part of their character, if they are going to make really good citizens.
 
-The boy can then realise better that part of his "Duty to God" is to take care of and develop as a sacred trust those talents with which God has equipped him for his passage through this life; the body with its health and strength and reproductive powers to be used in God's service; the mind with its wonderful reasoning, memory and appreciation, which place him above the animal world; and the soul, that bit of God which is within him - namely, Love, which can be developed and made stronger by continual expression and practice. Thus we teach him that to do his Duty to God means, not merely to lean on His kindness, but to do His will by practising love towards one's neighbour.
+This habit of seeing things from the other fellow's point of view can be developed in outdoor games where fair play is essential, whether it is in "Flag Raiding" or "Dispatch Running." During the game the strictest rules are observed which mean self-restraint and good temper on the part of the players, and at the end it is the proper form that the victor should sympathise with the one who is conquered, and that the opponent should be the first to cheer and congratulate the winner.
 
-The curious thing is that this duty of Service for Others through Good Turns is the one to which Scouts rise with the fullest alacrity. On this seemingly small foundation (the giving up of small personal conveniences or pleasures in order to render service) is built the character of self-sacrifice for others. The minor Good Turns which are part of the Scout's faith are in themselves the first step. Nature study and making friends with animals increase the kindly feeling within him and overcome the trait of cruelty which is said to be inherent in every boy (although, personally, I am not sure that it is so general as is supposed). From these minor Good Turns he goes on to learn first aid and help to the injured, and in the natural sequence of learning how to save life in the case of accidents, he develops a sense of duty to others and a readiness to sacrifice himself in danger. This, again, leads up to the idea of sacrifice for others, for his home, and for his country, thereby leading to patriotism and loyalty of a higher type than that of merely ecstatic flag-waving.
+This should be made the practice until it becomes the habit.
 
-## Service for the Community
+These are lttle points which a Scoutmaster can pay close attention to, since they have a big meaning later on in the character of the boy. The British have always been proverbial for their sense of fair play, whether in prize-fighting or in war. And we have always admired those whom fair play was inherent—even among savages. The Maoris in their war with us in New Zealand showed and instinctive chivalry which appealed strongly to us when we were in the field against them, and it was almost amazing to note the extent to which they expected chivalry in return. On one occasion one heard of their calling for a truce with a white flag because they had run out of ammunition, and asked for time to renew their supply. On another when they had been surrounded for some days in a mountain fastness they sent a messenger under a white flag to inform the British commander that he was camped on their only water supply, and that unless he would let them have some water they would not be able to go on fighting!
 
-The teaching of service is not merely a matter of teaching in theory, but the devel- opment of two distinct phases - the inculcation of the spirit of goodwill; and the provision of opportunity for its expression in practice.
-
-The teaching is mainly through example, and the Scoutmaster gives exactly the right lead in his patriotic dedication of self to the service of the boy, solely for the joy of doing it, and without thought of material reward.
-
-The opportunity for practice is given by the Scoutmaster suggesting to his boys special service projects.
-
-Public services offer the best opening for practical training in sense of duty to the community, patriotism and self-sacrifice through expression.
-
-The work of Scouts during peace and during wars in voluntarily taking up arduous duties in service of their country is in itself a proof of the keenness of the lads to do good work, and of their readiness to make themselves efficient where they see a good object. In this direction lies a powerful means of developing on practical lines the ideal of citizenship.
-
-As one specific example of public service might be mentioned Boy Scout Acci- dent and Fire Service (Emergency Service) for towns and villages. Such service is especially applicable to Senior Scouts, and acts as an attractive force to the older boy while giving him public services to train for and to render.
-
-The Troop is organised, equipped, and trained primarily for fire fighting, but with the further ability to deal with all kinds of accidents that, are possible in the neighbourhood, such, for instance, as: Street accidents; gas, chemical or other explosions; floods or inundations; electric accidents; railway accidents; fallen trees or buildings; ice accidents; bathing or boating accidents; airplane crashes; etc.
-
-This would demand, in addition to the drill, rescue and first aid required for fire work, knowledge and practice in methods of extricating and rescuing, and rendering the proper first aid in each class of work; such as: Knowledge of gases and chemicals; handling of boats, improvising rafts, use of life line; use of lifebuoys, life saving in the water, artificial respiration; how to deal with frightened animals; how to deal with electric live wires, burning liquids; etc.
-
-In some cases it may be best for each Patrol to specialise in a particular form of accident, but generally if the Patrols practise all in turn they arrive at complete efficiency for the whole Troop. Organisation for an accident would, however, confer specific duties on each Patrol, e.g., a Patrol of rescuers, first aiders, crowd holders, messengers, etc.
-
-The variety of work to be done supplies a whole series of activities such as should appeal to the boys.
-
-Frequent mobilizations to practise on improvised accidents are essential to at- taining efficiency and keenness.
-
-As efficiency becomes evident public interest will be aroused probably to a helpful degree. The scheme will then be recognised as having a double value, an education for the boys, and a blessing for the community.
-
-## Ulterior Effect
-
-The repression of self and development of that love and service for others, which means God within, bring a total change of heart to the individual and with it the glow of true Heaven. It makes a different being of him.
-
-The question becomes for him not "What can I get?", but "What can I give in life?"
-
-No matter what may be his ultimate form of religion, the lad will have grasped for himself its fundamentals, and knowing these through practising them he becomes a citizen with a widened outlook of kindliness and sympathy for his brother men.
-
-## Chivalry and Fair Play
-
-The code of the medieval knights has been the foundation for the conduct of gen- tlemen ever since the day around A.D. 500, when King Arthur made the rules for his Knights of the Round Table. The romance of the Knights has its attraction for all boys and has its appeal to their moral sense. Their Code of Chivalry included Honour, Self-Discipline, Courtesy, Courage, Selfless Sense of Duty and Service, and the guidance of Religion.
-
-The rules as they were republished in the time of Henry VII are as follow:-
+Possibly one reason for the ingrained feeling of chivalry in our nation is the fact that the code of the medæval knights took hold of the country so long ago as A.D. 500, when King Arthur made the rules for his Knight of the Round Table which have been the foundation for the conduct of gentlemen ever since that day. He dedicated the Order of St. George. The rules as they were re-published in the time of Henry VII are as follows:—
 
 1. They were never to put off their armour, except for the purpose of rest at night.
 2. They were to search for adventures wherein to attain "bruyt and renown."
@@ -225,76 +189,71 @@ The rules as they were republished in the time of Henry VII are as follow:-
 9. To sacrifice themselves for the honour of their country.
 10. "Sooner choose to die honestly than to flee shamefully."
 
-The ideals of the Knights and the idea of fair play is above all the one which can be best instilled into boys and leads them to that strong view of justice which should be part of their character, if they are going to make really good citizens.
-
-This habit of seeing things from the other fellow's point of view can be developed in outdoor games where fair play is essential, whether it is in "Flag Raiding" or "Dispatch Running." During the game the strictest rules are observed which mean self-restraint and good temper on the part of the players, and at the end it is the proper form that the victor should sympathise with the one who is conquered, and that the opponent should be the first to cheer and congratulate the winner.
-
-This should be made the practice until it becomes the habit. A further valuable aid to the training in fairness is the holding of debates amongst the boys on subjects that interest them and which lend themselves to argument on both sides. This is to get them into the way of recognizing that every important question has two sides to it, and that they should not be carried away by the eloquence of one orator before they have heard what the defender of the other side has to say on the subject, and that they should then weigh the evidence of both sides for themselves before making up their mind which part they should take.
+A further valuable aid to the training in fairness is the holding of debates amongst the boys on subjects that interest them and which lend themselves to argument on both sides. This is to get them into the way of recognizing that every important question has two sides to it, and that they should not be carried away by the eloquence of one orator before they have heard what the defender of the other side has to say on the subject, and that they should then weigh the evidence of both sides for themselves before making up their mind which part they should take.
 
 A practical step in ensuring this is not to vote by show of hands, where the hesitating or inattentive boy votes according to the majority. Each should record his vote "ay" or "no" on a slip of paper and hand it in. This ensures his making up his mind for himself after duly weighing both sides of the question.
 
-In the same, way mock trials or arbitration of quarrels, if carried out seriously and on the lines of a law court, are of the greatest value in teaching the boys the same idea of justice and fair play, and also give them a minor experience of what their civic duties may be as jurymen or witnesses later on. The Court of Honour in the Troop is another step in the same direction, and as the boys here have a real responsibility by being members of the Court, the seriousness of their views is brought home to them a11 the more, and encourages them to think out carefully the right line to take when they have heard all the arguments on both sides.
+In the same way mock trials or arbitration of quarrels, if carried out seriously and on the lines of a law court, are of the greatest value in teaching the boys the same idea of justice and fair play, and also give them a minor experience of what their civic duties may be as jurymen or witnesses later on. The Court of Honour in the Troop is another step in the same direction, and as the boys here have a real responsibility by being members of the Court, the seriousness of their views is brought home to them a11 the more, and encourages them to think out carefully the right line to take when they have heard all the arguments on both sides.
 
 Thus a Scoutmaster, who uses his ingenuity towards the end of teaching fair play, unselfishness and sense of duty to others, may make ample opportunities, whether indoors or out, for training his Scouts. Of all the subjects with which we are dealing, I believe this to be one of the most important towards self-governing citizenship, though I fear I have only touched upon it in a very sketchy manner.
 
-## Proficiency Badges (Merit Badges)
+## Service for the Community
 
-Proficiency Badges are established with a view to developing in each lad the taste for hobbies or handicrafts, one of which may ultimately give him a career and not leave him hopeless and helpless on going out into the world.
+Public services offer the best opening for practical training in sense of duty to the community, patriotism and self-sacrifice through expression.
 
-The Badges are merely intended as an encouragement to a boy to take up a hobby or occupation and to make some sort of progress in it; they are a sign to an outsider that he has done so; they are, not intended to signify that he is a master in the craft he is tested in. If once we make Scouting into a formal scheme of serious instruction in efficiency, we miss the whole point and value of Scout training, and we trench on the work of the schools without the trained experts for carrying it out. We want to get all our boys along through cheery self-development from within and not through the imposition of formal instruction from without.
+The work of Sea Scouts during peace and during wars in voluntarily taking up arduous duties of Coast-watching was in itself an example among many of the keenness of the lads to do good work, and of their readiness to make themselves efficient where they see a good object. In this direction lies a powerful means of holding the older boy, and of developing on practical lines the ideal of citizenship.
 
-But the object of the Badge System in Scouting is also to give the Scoutmaster an instrument by which he can stimulate keenness on the part of every and any boy to take up hobbies that can be helpful in forming his character or developing his skill.
+The Boy Scout Accident and Fire Service (Emergency Service) for Towns and Villages is specially applicable to Rovers, and acts as an attractive force to the older boys while giving him public services to train for and to render.
 
-It is an instrument which - if applied with understanding and sympathy - is designed to give hope and ambition even to the dullest and most backward, who would otherwise be quickly outdistanced and so rendered hopeless in the race of life. It is for this reason that the standard of proficiency is purposely left undefined. Our standard for Badge earning is not the attainment of a certain level of quality of knowledge or skill, but the **amount of effort the boy has put into acquiting such knowledge or skill**. This brings the most hopeless case on to a footing of equal possibility with his more brilliant or better-off brother.
+A Troop is organised, equipped, and trained primarily as a fire brigade, but with the further ability to deal with all kinds of accidents that, are possible in the neighbourhood. Such, for instance, as—
 
-An understanding Scoutmaster who has made a study of his boys' psychology can thus give to the boy an encouraging handicap, such as will give the dull boy a fair start alongside his betterbrained brother. And the backward boy, in whom the inferiority complex has been born through many failures, can have his first win or two made easy for him so that he is led to intensify his efforts. If he is a trier, no matter how clumsy, his examiner can accord him his Badge, and this generally inspires the boy to go on trying till he wins further Badges and becomes normally capable.
+* Street accidents, to or through motor-cars, trams, carts, etc.
+* Gas, chemical or other explosions.
+* Floods or inundations
+* Electric accidents.
+* Railway accidents.
+* Fallen trees or buildings.
+* Ice accidents.
+* Bathing or boating accidents.
+* Savage animals—bulls, dogs, vicious horses, etc.
+* Machinery accidents.
+* Airplane crashes.
+* Shipwrecks, etc.
 
-The examination for Badges is not competitive, but just a test for the individual. The Scoutmaster and the examiner must therefore work in close harmony, judging each individual case on its merits, and discriminating where to be generous and where to tighten up.
 
-Some are inclined to insist that their Scouts should be firstrate before they can get a Badge. That is very right, in theory; you get a few boys pretty proficient in this way - but our object is to get all the boys interested. The Scoutmaster who puts his boys at an easy fence to begin with will find them jumping with confidence and keenness, whereas if he gives them an upstanding stone wall to begin, it makes them strong.
+This would demand, in addition to the drill, rescue and first aid required for fire work, knowledge and practice in methods of extricating and rescuing, and rendering the proper first aid in each class of work; such as—
 
-At the same time, we do not recommend the other extreme, namely, that of almost giving away the Badges on very slight knowledge of the subjects. It is a matter where examiners should use their sense and discretion, keeping the main aim in view.
+* Knowledge of gases, and chemicals, both light and heavy.
+* Handling of boats, improvising rafts, use of light line.
+* Use of lifebuoys, life saving in the water, artificial respiration, etc.
+* How to deal with savage animals
+* Stopping running machinery.
+* How to deal with electric live wires, burning petrol, etc.
 
-There is always the danger of Badge-hunting supplanting Badge-earning. Our aim is to make boys into smiling, sensible, self-effacing, hardworking citizens, instead of showy, self-indulgent boys. The Scoutmaster must be on the alert to check Badge- hunting and to realise which is the Badge-hunter and which is the keen and earnest worker.
+In some cases it may be best for each Patrol to specialise in a particular form of accident, but generally if the Patrols practise all in turn they arrive at complete efficiency for the whole Troop.
 
-Thus the success of the Badge System depends very largely on the Scoutmaster himself and his individual handling of it.
+Organisation for an accident would, however, confer specific duties on each Patrol, *e.g.*, a Patrol of rescuers, first aiders, crowd holders, messengers, apparatus, etc.
 
-## Self-Expression
+The system of calling up on an alarm, and a roster of duty, the collection of necessary apparatus, etc., will vary according to local conditions.
 
-Our Art Badge is devised to lead boys on to express their ideas graphically from their own observation or imagination without attempting thereby to be or to imitate artists. By encouraging drawing, however crude, on the part of the youngster, he can be led on to recognise beauty in color or in form, to realise that even in sordid surroundings there may yet be light and shadow, color and beauty.
+The variety of work to be done supplies a whole series of activities such as should appeal to the boys.
 
-A further stage in his education can be brought about by getting him to practice mental photography, that is to notice the details of a scene or incident or person, and fix these in his mind, and then to go and reproduce them on paper.
+Frequent dummy calls to practise on improvised accidents are essential to attaining efficiency and keenness.
 
-This teaches observation in the highest degree. Personally I have found by prac- tice that one can develop a certain and considerable power in this direction.
+As efficiency becomes evident public interest will be aroused probably to a helpful degree. The scheme will then be recognised as having a double value, an education for the boys, and a blessing for the community.
 
-Rhythm is a form of art which comes naturally even to the untrained mind, whether it be employed in poetry or music or in body exercises. It gives a balance and order which has its natural appeal even and especially among those closest to nature-savages. In the form of music it is of course most obvious and universal. The Zulu War Song when sung by four or five thousand warriors is an example of rhythm, in music, poetry and bodily movement combined.
+## Programme For Study Patrol
 
-The enjoyment of rendering music is common to all the human family, The song as a setting to words enables the soul to give itself expression which, when adequately done, brings pleasure both to the singer and to his hearer.
+C> **Subject V. "Service to Others"**
 
-Through his natural love of music the boy can be linked up with poetry and sentiment as by a natural and easy transition. It opens a ready means to the Scoutmaster of teaching happiness to his lads and at the same time of raising the tone of their thoughts.
-
-Play-acting also ought to form part of every boy's education for self-expression.
-
-At school I was encouraged to do a lot of play-acting and I have thanked my stars ever since that I did so. For one thing it taught me to learn yards of stuff by heart; also accustomed me to speak clearly and without nervousness before a lot of people; and it gave me the novel joy of being someone else for a time.
-
-It led one to know the beauties of Shakespeare and other authors, to feel, while expressing them, the emotions of joy and sorrow, love and sympathy.
-
-Above all it gave one the pleasure and happiness of giving pleasure to other people at times when they needed it.
-
-Many troops are giving entertainments in the winter months and are thus not only earning satisfactory additions to their funds, but are giving good training to their boys and pleasure to others.
-
-## From Hobby to Career
-
-Hobbies, handcraft, intelligence and health are preliminary steps for developing love of work and ability to carry on, which are essential to successful work. The second stage is fitting the young worker to the right kind of work.
-
-The best workers, like the happiest livers, look upon their work as a kind of game: the harder they play the more enjoyable it becomes. H. G. Wells has said:-
-
-> I have noticed that so called great men are really boys at heart, that is, they are boys in the eagerness of their enjoyment of their task. They work because they like to work, and thus their work is really play to them. The boy is not only father to the man, but he is the man and does not disappear at all.
-
-Ralph Parlette says truly:-
-
-> Play is Loving to do things, and Work is Having to do things.
-
-In Scouting we try to help the boys acquire this attitude, by making them person- ally enthused in subjects that appeal to them individually, and that will be helpful to them later on.
-
-We do this first and foremost through the fun and jollity of Scouting. The boys can then by progressive stages be led on naturally and unconsciously to develop themselves for their future.
+| Subject. | Study and Practice. |
+|------|------|
+| **1st Week.—Reverence**. *Duty to God and neighbour.* | Practice good turns. Church parade—how arranged and carried out in camp. "Scout's Own." Nature study by observation—walks, or visits to museum, including plants, birds, animals, reptiles. Star study. Special police duty. Marksmanship for protection of women and children. |
+|------|------|
+| **2nd Week.—Service for Others.** *Helpfulness. Chivalry.* | Training for Missioner's Badge in first-aid, nursing, sanitation, diet, and other details. |
+|------|------|
+| **3rd Week.—Service for Others.** *Life-saving. Self-sacrifice.* | Individual preparedness; also organisation of Troops in Patrols for different duties connected with accidents, *e.g.* holding back crowd, bringing help, rescuing, applying first-aid, ambulance work, etc., for such accidents as fire, drowning, run-away horses, suiides, wrecks, panics, gas poisoning, electric shock, aeroplane fall, etc. |
+|------|------|
+| **4th Week.—Unselfishness.** *Fair-play. Justice* | Further practice of foregoing. Games involving fairness and adherence to rules. (Losers to applaud winners.) Patrol Leaders' Conferences. Debating society; and Trail by jury to insure hearing both sides and then making up minds with fairness. |
+|------|------|
+| *Week-end Camp.* | On *Saturday* further practice of third and fourth weeks as above. On *Sunday* practice of first and second weeks as above. |
