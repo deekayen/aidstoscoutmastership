@@ -22,21 +22,21 @@ The following is the attitude of the Scout Movement as regards religion, approve
 
 "*(a) It is expected that every Scout shall belong to some religious denomination, and attend its services.*
 
-"*(b) Where a Troop is composed of members of one particular form of religion, it is hoped that the Scoutmaster will arrange such denomi- national religious observances and instruction as he, in consultation with its Chaplain or other religious authority, may consider best.*
+"*(b) Where a Troop is composed of members of one particular form of religion, it is hoped that the Scoutmaster will arrange such denominational religious observances and instruction as he, in consultation with its Chaplain or other religious authority, may consider best.*
 
 "*(c) Where a Troop consists of Scouts of various religions they should be encouraged to attend the service of their own denomination, and in camp, any form of daily prayer and of weekly Divine service should be of the simplest character, attendance being voluntary.*"
 
 If the Scoutmaster takes this pronouncement as his guide he cannot go far wrong.
 
-*Training*.—I am perfectly convinced that there are more ways than one by which reverence may be inculcated. The solution depends on the individual character and circum- stances of the boy, whether he is a "hooligan" or a "mother's darling." The training that may suit the one may not have much effect on the other. It is for the teacher, whether Scoutmaster or Chaplain, to select the right one.
+*Training*.—I am perfectly convinced that there are more ways than one by which reverence may be inculcated. The solution depends on the individual character and circumstances of the boy, whether he is a "hooligan" or a "mother's darling." The training that may suit the one may not have much effect on the other. It is for the teacher, whether Scoutmaster or Chaplain, to select the right one.
 
-While I am speaking on religous training in England, please don't think that I am reiterating the theory which is so lavishly written on this particular subject. I speak from a fairly wide personal experience, having had some thousands of young men through my hands, and my experience only tallies with that of most authorities whom I have consulted. The conclusion come to is that the actions of a very large proportion of our men are, at present, very little guided by religious conviction.
+While I am speaking on religious training in England, please don't think that I am reiterating the theory which is so lavishly written on this particular subject. I speak from a fairly wide personal experience, having had some thousands of young men through my hands, and my experience only tallies with that of most authorities whom I have consulted. The conclusion come to is that the actions of a very large proportion of our men are, at present, very little guided by religious conviction.
 
 This may be attributed to a great extent to the fact that often *instruction* instead of *education* has been employed in the religious training of the boy, and that in some instances the teaching is undertaken by people who have no real experience or proper training for the work.
 
 The consequence has been that the best boys in the Bible-class or Sunday School have grasped the idea, but in many cases they have, by perfection in the letter, missed the spirit of the teaching and have become zealots with a restricted outlook, while the majority have never really been enthused, and have, as soon as they have left the class or school, lapsed into indifference and irreligion, and there has been no hand to retain them at the critical time of their lives, *i.e.* sixteen to twenty-four.
 
-The disappointing results in religious training have been recognised by the authorities, and the more thorough training now inaugurated for teachers in Sundy Schools and the like promises a very different result for religious education in the future.
+The disappointing results in religious training have been recognised by the authorities, and the more thorough training now inaugurated for teachers in Sunday Schools and the like promises a very different result for religious education in the future.
 
 It is not given to every man to be a good teacher of religion, and often the most earnest are the greatest failure—and without knowing it.
 
@@ -46,7 +46,7 @@ On the practical side, however, the Scoutmaster can in every case do an immense 
 
 In denominational Troops there is, as a rule, a Troop Chaplain, and the Scoutmaster should, as stated in Clause 2 of our Headquarters Religious Policy, consult with him on all questions of religious instruction.
 
-It should be clearly understood that a Troop can be confined entirely to one particular church or denomination (for example, Church of England officers and boys, Roman Cathoics, Wesleyans, or the like).
+It should be clearly understood that a Troop can be confined entirely to one particular church or denomination (for example, Church of England officers and boys, Roman Catholics, Wesleyans, or the like).
 
 For the purpose of its religious training, a service or class can be held, called a "Scouts' Own," "Scout Guild," or other such name as may be thought best. I commend to your careful consideration and study the valuable and interesting results of the Manchester Conference on the subject of "How to Run a Scouts' Own."
 
@@ -54,7 +54,7 @@ The majority, however, of our Troops are interdenominational, having boys of dif
 
 For these Troops a Chaplain seems hardly required, because the boys should be sent to their own clergy and pastors for denominational religious instruction.
 
-Still, for many of these Troops a "Scout's Own" or class of some kind on a Sunday has been found very helpful for inspiring the right scout spirit, but they need to be organised and carried on with care and tact. THe Scoutmaster shoudl always consult the parents and the boys, clergy and pastors, as a first step.
+Still, for many of these Troops a "Scout's Own" or class of some kind on a Sunday has been found very helpful for inspiring the right scout spirit, but they need to be organised and carried on with care and tact. The Scoutmaster should always consult the parents and the boys, clergy and pastors, as a first step.
 
 Other Troops in slums have lads of practically no religion of any kind, and their parents are little or no help to them. Naturally, these require different handling and methods of training from those boys in whom religion has been well grounded.
 
@@ -130,7 +130,7 @@ Loyalty to the King signifies loyalty to our country and our kind. Political exc
 
 \[Indeed it is whispered that when President Wilson was in Paris a message was sent to him from New York to the effect that if he did not return at once they would be starting to form a Republic in America!\]
 
-Loyalty to himself on the part of the boy—that is, to his better conscience—is the great step to self-realisation. Loyalty to others is proved by self-Service for others and self-sacrifice must necessarily include readiness to serve one's country should the necessity arise for protecting it against foreign aggression; that is the duty of every citizen. But this does not mean that he is to develop a blood-thirsty or aggressive spirit, nor that the boy need be trained to military dutites and ideas of fighting. This can be left until he is of an age to judge for himself. At the same time rifle practice is a good preparation and does a boy no harm morally; on the contrary, it does him good, since it promotes concentration, steadiness of nerve eyesight, exactness, etc. More-over, it will stand him in good stead should he ever be required to help in the defence of his country, or, as will frequently be the case in a colony, in defence of his home against raids by savages, or, on board ship, by pirates.
+Loyalty to himself on the part of the boy—that is, to his better conscience—is the great step to self-realisation. Loyalty to others is proved by self-Service for others and self-sacrifice must necessarily include readiness to serve one's country should the necessity arise for protecting it against foreign aggression; that is the duty of every citizen. But this does not mean that he is to develop a blood-thirsty or aggressive spirit, nor that the boy need be trained to military duties and ideas of fighting. This can be left until he is of an age to judge for himself. At the same time rifle practice is a good preparation and does a boy no harm morally; on the contrary, it does him good, since it promotes concentration, steadiness of nerve eyesight, exactness, etc. More-over, it will stand him in good stead should he ever be required to help in the defence of his country, or, as will frequently be the case in a colony, in defence of his home against raids by savages, or, on board ship, by pirates.
 
 ## Go by the Pace of the Slowest
 
@@ -174,7 +174,7 @@ This habit of seeing things from the other fellow's point of view can be develop
 
 This should be made the practice until it becomes the habit.
 
-These are lttle points which a Scoutmaster can pay close attention to, since they have a big meaning later on in the character of the boy. The British have always been proverbial for their sense of fair play, whether in prize-fighting or in war. And we have always admired those whom fair play was inherent—even among savages. The Maoris in their war with us in New Zealand showed and instinctive chivalry which appealed strongly to us when we were in the field against them, and it was almost amazing to note the extent to which they expected chivalry in return. On one occasion one heard of their calling for a truce with a white flag because they had run out of ammunition, and asked for time to renew their supply. On another when they had been surrounded for some days in a mountain fastness they sent a messenger under a white flag to inform the British commander that he was camped on their only water supply, and that unless he would let them have some water they would not be able to go on fighting!
+These are little points which a Scoutmaster can pay close attention to, since they have a big meaning later on in the character of the boy. The British have always been proverbial for their sense of fair play, whether in prize-fighting or in war. And we have always admired those whom fair play was inherent—even among savages. The Maoris in their war with us in New Zealand showed and instinctive chivalry which appealed strongly to us when we were in the field against them, and it was almost amazing to note the extent to which they expected chivalry in return. On one occasion one heard of their calling for a truce with a white flag because they had run out of ammunition, and asked for time to renew their supply. On another when they had been surrounded for some days in a mountain fastness they sent a messenger under a white flag to inform the British commander that he was camped on their only water supply, and that unless he would let them have some water they would not be able to go on fighting!
 
 Possibly one reason for the ingrained feeling of chivalry in our nation is the fact that the code of the medæval knights took hold of the country so long ago as A.D. 500, when King Arthur made the rules for his Knight of the Round Table which have been the foundation for the conduct of gentlemen ever since that day. He dedicated the Order of St. George. The rules as they were re-published in the time of Henry VII are as follows:—
 
@@ -252,7 +252,7 @@ As efficiency becomes evident public interest will be aroused probably to a help
 |------|------|
 | **2nd Week.—Service for Others.** *Helpfulness. Chivalry.* | Training for Missioner's Badge in first-aid, nursing, sanitation, diet, and other details. |
 |------|------|
-| **3rd Week.—Service for Others.** *Life-saving. Self-sacrifice.* | Individual preparedness; also organisation of Troops in Patrols for different duties connected with accidents, *e.g.* holding back crowd, bringing help, rescuing, applying first-aid, ambulance work, etc., for such accidents as fire, drowning, run-away horses, suiides, wrecks, panics, gas poisoning, electric shock, aeroplane fall, etc. |
+| **3rd Week.—Service for Others.** *Life-saving. Self-sacrifice.* | Individual preparedness; also organisation of Troops in Patrols for different duties connected with accidents, *e.g.* holding back crowd, bringing help, rescuing, applying first-aid, ambulance work, etc., for such accidents as fire, drowning, run-away horses, suicides, wrecks, panics, gas poisoning, electric shock, aeroplane fall, etc. |
 |------|------|
 | **4th Week.—Unselfishness.** *Fair-play. Justice* | Further practice of foregoing. Games involving fairness and adherence to rules. (Losers to applaud winners.) Patrol Leaders' Conferences. Debating society; and Trail by jury to insure hearing both sides and then making up minds with fairness. |
 |------|------|
