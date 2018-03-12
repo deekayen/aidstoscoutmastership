@@ -308,7 +308,7 @@ A large percentage of weaklings in our country could, if taken in hand in time b
 
 ## Programme for Study Patrol
 
-C> **Subject III.—Physical Health**
+### Subject III.—Physical Health
 
 | Subject. | Study and Practice. |
 |------|------|

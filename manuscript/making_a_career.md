@@ -120,7 +120,7 @@ Wrong ideas and fallacies are actually and deliberately taught to children to So
 
 ## Programme For Study Patrol
 
-C> **Subject IV. "Making a Career"**
+### Subject IV. "Making a Career"
 
 | Theoretical Aim. | Instruction in Detail. |
 |------|------|

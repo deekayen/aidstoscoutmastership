@@ -209,7 +209,7 @@ Our Artist's Badge is devised under a rather misleading name I fear, to lead boy
 
 ## Programme for Study Patrol
 
-C> **Subject II.—Character Training**
+### Subject II.—Character Training
 
 | Principles. | Instruction in Details. |
 |------|------|

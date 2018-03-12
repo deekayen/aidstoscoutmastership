@@ -244,7 +244,7 @@ As efficiency becomes evident public interest will be aroused probably to a help
 
 ## Programme For Study Patrol
 
-C> **Subject V. "Service to Others"**
+### Subject V.—Service to Others
 
 | Subject. | Study and Practice. |
 |------|------|

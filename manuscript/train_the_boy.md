@@ -183,7 +183,7 @@ A man dared to tell me once that he was the happiest man in the world! I had to 
 
 ## Programme for Study Patrol
 
-C> **Subject I.—How to Train the Boy**
+### Subject I.—How to Train the Boy
 
 | Subject. | Study and Practice. |
 |------|------|
