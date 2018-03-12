@@ -7,7 +7,6 @@ character.md
 health_and_physical_development.md
 making_a_career.md
 service_for_others.md
-to_sum_up.md
 reconstruction.md
 education_act.md
 attitude_of_labour.md
