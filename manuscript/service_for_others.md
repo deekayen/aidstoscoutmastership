@@ -72,7 +72,7 @@ The practical way in which Scouting can help is through the following:—
 
 *(e)* Retention of the older boy.
 
-C> *(a) Personal example.*
+### (a) Personal example.
 
 It is a common saying that an Englishman hates parading his religion; that he is often a man who does his duties from a religious conviction, but does not "for a pretence make long prayers" in public.
 
@@ -82,7 +82,7 @@ A Scoutmaster has, therefore, the greatest responsibility on his shoulders for d
 
 Here the attitude of elder brother rather than of teacher tells with the greater force.
 
-C> *(b) Nature study.*
+### (b) Nature study.
 
 It has been said that "more men have been led to God through His handiwork than have ever been introduced by the preacher."
 
@@ -92,17 +92,17 @@ The flowers in their orders, and plants of every kind, their buds and bark, the 
 
 The wonder to me of all wonders is how some teachers have neglected this easy and unfailing means of *education* and have struggled to impose Biblical *instruction* as the first step towards getting a restless, full-spirited boy to think of higher things.
 
-C> *(c) Good Turns.*
+### (c) Good Turns.
 
 With a little encouragement on the part of the Scoutmaster the practice of daily Good Turns soon becomes a sort of fashion with boys, and it is the very best step towards making a Christian in fact, and not merely in theory. The boy has a natural instinct for good if he only sees a practical way to exercise it, and this Good Turn business meets it and develops it, and in developing it brings out the spirit of Christian charity towards his neighbour.
 
 This expression of his will to good, is more effective, more natural to the boy, and more in accordance with the Scout method than his passive acceptance of instructive precepts.
 
-C> *(d) Missioner service.*
+### (d) Missioner service.
 
 The development is then carried on to a higher and wider standard through the practice of the test-items of the Missioners' Social Service Badge.
 
-C> *(e) Retention of the older boy.*
+### (e) Retention of the older boy.
 
 So soon as the ordinary boy begins to get a scholastic knowledge of reading, writing, and arithmetic, he is sent out into the world, at the age of fourteen, as fit and equipped for making his career as a good working citizen.
 
@@ -219,7 +219,6 @@ A Troop is organised, equipped, and trained primarily as a fire brigade, but wit
 * Machinery accidents.
 * Airplane crashes.
 * Shipwrecks, etc.
-
 
 This would demand, in addition to the drill, rescue and first aid required for fire work, knowledge and practice in methods of extricating and rescuing, and rendering the proper first aid in each class of work; such as—
 
