@@ -4,7 +4,7 @@
 
 Lord Crewe spoke recently of the changes which have come over the aims in education. These a few years ago were directed to making children "efficient," as an improvement on the previous thesis of merely "giving them knowledge"; but this is no longer considered good enough.
 
-Moral qualities are how being aimed at - in fact, character; but the steps for getting these are to a considerable extent nebulous and vague.
+Moral qualities are how being aimed at—in fact, character; but the steps for getting these are to a considerable extent nebulous and vague.
 
 Mr. Clynes, during his recent visit to Cambridge, pointed out that "the blot of modern civilisation has been the failure to raise the manual worker from the level of drudge and to secure for him opportunities for culture and recreation.
 

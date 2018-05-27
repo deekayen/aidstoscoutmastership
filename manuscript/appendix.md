@@ -1,12 +1,12 @@
 # Appendix
 
-**Note**. - The following are sample questions such as an examiner could put to candidates for Scoutmasters' Diplomas, or students could put to themselves on the different subjects of study given in the foregoing pages.
+**Note**.—The following are sample questions such as an examiner could put to candidates for Scoutmasters' Diplomas, or students could put to themselves on the different subjects of study given in the foregoing pages.
 
 *(Questions to be Answered by Candidates)*
 
 ## I. "How to Train the Boy"
 
-1. What would you consider three of the main difficulties of the present system of school education - and how can Scouting be applied to help the schoolmaster in remedying it?
+1. What would you consider three of the main difficulties of the present system of school education—and how can Scouting be applied to help the schoolmaster in remedying it?
 2. What, from personal observation, do you consider are the chief characteristics of a "working boy"?
 3. Mention any "Blind Alley" occupation with which you are personally acquainted, or about which you have information. Suggest how Scouting could be applied to remedy its evils.
 4. I have two letters criticising the book, *Scouting for Boys*. One says it is too full of subjects, that a learner cannot possibly take up all of them, and, therefore, the book is confusing. The other says he has tried the training, but has got through it all, and wants a further book with more subjects in it. State what you consider the functions of the book, and give from your point of view any suggestions as to how it would better fulfil its functions.
@@ -17,7 +17,7 @@
 
 1. What do you consider to be the difference between "Education" and "Instruction"?
 2. What is your view of Military Drill as a means of training boys in character? State briefly its advantages and disadvantages.
-3. What are the objects, advantages, and disadvantages of the Patrol System - that is, having Patrols as units in the Troop under full control of their Patrol Leaders?
+3. What are the objects, advantages, and disadvantages of the Patrol System—that is, having Patrols as units in the Troop under full control of their Patrol Leaders?
 4. How do you start to teach a boy tracking? What is the object of teaching him?
 5. Which Scout Badges do you consider best calculated to develop "character" in the boy?
 6. Draw up a programme for a day's work in Camp, particularly for the purpose of training the boys in character. Give your reasons for the different practices selected.
@@ -34,15 +34,15 @@
 
 5. How does the work for Missioner's Badge help a boy to be healthy?
 
-6. It has been suggested that the Scout Movement might give valuable help in the physical development and health of the boys of the nation if it started a regular physical system. For this purpose it has been proposed to institute an "Athletes" Badge in three classes, viz. :-
+6. It has been suggested that the Scout Movement might give valuable help in the physical development and health of the boys of the nation if it started a regular physical system. For this purpose it has been proposed to institute an "Athletes" Badge in three classes, viz.:—
 
-   *First-class.* - Boys who are up to the average standard of their age in various details of physical development and who can swim.
+   *First-class.*—Boys who are up to the average standard of their age in various details of physical development and who can swim.
 
-   *Second-class.* - Boys who are similarly up to the standard, but who cannot swim.
+   *Second-class.*—Boys who are similarly up to the standard, but who cannot swim.
 
-   *Third-class.* - Boys who fail to pass the tests for second-class, but come up to the modified standard.
+   *Third-class.*—Boys who fail to pass the tests for second-class, but come up to the modified standard.
 
-   Can you suggest the best practical method for carrying out this scheme, taking into consideration such points as -
+   Can you suggest the best practical method for carrying out this scheme, taking into consideration such points as—
 
    *(a)* The time, knowledge, apparatus, etc., available to the average Scoutmaster.
 
@@ -68,7 +68,7 @@
 5. State what you consider the chief points of value for organising your Senior Scouts.
 6. Suggest any ideas for training for keeping up the interest of Old Scouts in Scouting.
 
-[N.B. - By the term "Senior Scout" is meant a youth who is still a Scout in a Troop, but is growing up - say between sixteen and twenty.
+[N.B.—By the term "Senior Scout" is meant a youth who is still a Scout in a Troop, but is growing up—say between sixteen and twenty.
 
 By the term "Old Scout" is meant one who has left his troop either on account of age, or because of work, change of location, or other reason which prevents him continuing in his Troop.]
 
@@ -78,7 +78,7 @@ This series of week-end camps is being held, partly to encourage Scoutmaster in 
 
 #### Dates
 
-The dates for the camp will be -
+The dates for the camp will be—
 
 | May 16th and 17th. | June 27th and 28th. |
 | July 11th and 12th. | July 18th and 19th. |
@@ -93,7 +93,7 @@ Patrols will be able to leave on Sunday night, if desirous.
 
 On Saturday afternoon there will be practical work, and in the evening there will be practical work followed by a Camp-fire yarn.
 
-On Sunday morning there will be a flag-post parade and service. On Sunday afternoon there will be addresses on Saturday's work - treating rather of he moral aspect - followed by practical displays on those points on which Scoutmasters have asked questions the previous night. On Sunday night there will be an open discussion on Scouting.
+On Sunday morning there will be a flag-post parade and service. On Sunday afternoon there will be addresses on Saturday's work—treating rather of he moral aspect—followed by practical displays on those points on which Scoutmasters have asked questions the previous night. On Sunday night there will be an open discussion on Scouting.
 
 #### Addresses
 
@@ -125,7 +125,7 @@ Each week-end will be run by a different man, as no one man is both competent an
 
 #### Smoking
 
-No smoking will be allowed in Camp, expect round the Camp-fire at night. *Scouting for Boys,* pp. 193, 194.
+No smoking will be allowed in Camp, except round the Camp-fire at night. *Scouting for Boys,* pp. 193, 194.
 
 #### Drinks
 
@@ -139,56 +139,56 @@ Bugles will not be used.
 
 #### References
 
-Before attending, every Scoutmaster should read up for -
+Before attending, every Scoutmaster should read up for—
 
-*1st week-end.* - *Scouting for Boys,* Chaps. 2 and 5. Chief's article on "Character Training."
+*1st week-end.*—*Scouting for Boys,* Chaps. 2 and 5. Chief's article on "Character Training."
 
-*2nd week-end.* - *Scouting for Boys,* Chap. 3, Yarns 8 and 9. Article, "Handicrafts."
+*2nd week-end.*—*Scouting for Boys,* Chap. 3, Yarns 8 and 9. Article, "Handicrafts."
 
-*3rd week-end.* - *Scouting for Boys,* Chaps. 7 and 8. Article, "The responsibility for health."
+*3rd week-end.*—*Scouting for Boys,* Chaps. 7 and 8. Article, "The responsibility for health."
 
-*4th week-end.* - *Scouting for Boys,* Chap. 10. Article, "Service for Others."
+*4th week-end.*—*Scouting for Boys,* Chap. 10. Article, "Service for Others."
 
 ### Programme
 
-#### 1st Week-end. - Individual Character
+#### 1st Week-end.—Individual Character
 
-3 p.m. - Circular rally. Enrolling a Scout. Tent pitching and camp planning.
+3 p.m.—Circular rally. Enrolling a Scout. Tent pitching and camp planning.
 
-5 p.m. - Tea in Patrol camps.
+5 p.m.—Tea in Patrol camps.
 
-6 p.m. - Map reading. Observation and deduction. Nature study in country and in town.
+6 p.m.—Map reading. Observation and deduction. Nature study in country and in town.
 
-7:30 p.m. - Camp fire. Signal fire, followed by Yarn on "Scout Law" and Patrol system.
+7:30 p.m.—Camp fire. Signal fire, followed by Yarn on "Scout Law" and Patrol system.
 
-#### 2nd Week-end. - Skill and Making a Career
+#### 2nd Week-end.—Skill and Making a Career
 
-3 p.m. - Circular rally. Bridge building. Knot tying. Pioneer work.
+3 p.m.—Circular rally. Bridge building. Knot tying. Pioneer work.
 
-5 p.m. - Tea in Patrol camps.
+5 p.m.—Tea in Patrol camps.
 
-6 p.m. - Camp expedients. Cooking.
+6 p.m.—Camp expedients. Cooking.
 
-7:30 p.m. - The rifle, and how to use it. Camp fire. Lamp-signaling. Yarn on "Citizenship." "Employment Agencies," etc.
+7:30 p.m.—The rifle, and how to use it. Camp fire. Lamp-signaling. Yarn on "Citizenship." "Employment Agencies," etc.
 
-#### 3rd Week-end. - Physical Health
+#### 3rd Week-end.—Physical Health
 
-3 p.m. - Circular rally. Scout pace and drill. Physical exercises through games and recreational activities.
+3 p.m.—Circular rally. Scout pace and drill. Physical exercises through games and recreational activities.
 
-5 p.m. - Tea in Patrol camps.
+5 p.m.—Tea in Patrol camps.
 
-6 p.m. - Anatomy. Punctuality - internal and external. Visual Training.
+6 p.m.—Anatomy. Punctuality—internal and external. Visual Training.
 
-7:30 p.m. - Sense of smell and touch. Cause of loss of them. Yarn, "How to teach boys continence, cleanliness, anatomy."
+7:30 p.m.—Sense of smell and touch. Cause of loss of them. Yarn, "How to teach boys continence, cleanliness, anatomy."
 
-#### 4th Week-end. - Service for Others
+#### 4th Week-end.—Service for Others
 
-3 p.m. - Circular rally. Accidents. Life saving.
+3 p.m.—Circular rally. Accidents. Life saving.
 
-5 p.m. - Tea in Patrol camps.
+5 p.m.—Tea in Patrol camps.
 
-6 p.m. - First-aid in practice.
+6 p.m.—First-aid in practice.
 
-7:30 p.m. - Nursing. Yarn, "How to Train a Troop."
+7:30 p.m.—Nursing. Yarn, "How to Train a Troop."
 
 C> THE END

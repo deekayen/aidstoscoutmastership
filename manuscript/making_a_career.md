@@ -112,7 +112,7 @@ Workmen seem unable to grasp the principle that security of employment, good "re
 
 Employers generally have no conception of the demonstrable money value of treating the man as entitled to a voice in regulating the conditions of his employment, nor of the definite mistake of treating him as an economic unit. Workmen tenaciously cling to the fallacy, long exploded in America, that restricted output relieves unemployment, enhances wages, and raises the status of labour.
 
-Wrong ideas and fallacies are actually and deliberately taught to children to Socialist schools. False doctrine, heresy, and schism are definitely preached to workers by means of leaflets and addresses so that antagonism is the prevailing spirit. It is all based on wrong grounds. We don't, in the Scouts, want to join in the politics which somehow get mixed up with th economic question, which somehow get mixed up with the economic question, but we do want to educate the coming man as to where his best interests lie and how, in serving his country's commercial interests, he is also serving his own.
+Wrong ideas and fallacies are actually and deliberately taught to children to Socialist schools. False doctrine, heresy, and schism are definitely preached to workers by means of leaflets and addresses so that antagonism is the prevailing spirit. It is all based on wrong grounds. We don't, in the Scouts, want to join in the politics which somehow get mixed up with the economic question, which somehow get mixed up with the economic question, but we do want to educate the coming man as to where his best interests lie and how, in serving his country's commercial interests, he is also serving his own.
 
 ## Employment
 

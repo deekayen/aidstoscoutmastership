@@ -2,9 +2,9 @@
 
 ## The Material We Have to Deal With
 
-The slogan of the times—whether for a nation or an individual—seems to be *Selbst uber alles.* "Down with everything - and up with me."
+The slogan of the times—whether for a nation or an individual—seems to be *Selbst uber alles.* "Down with everything—and up with me."
 
-The convulsion of the war has opened our eyes to many strange things. Few of us had realised till war had exposed it how thin is the veneer of civilisation over the underlying animal proclivities. In the brutality of even those who boasted of their superior kultur, in the mad riot of Bolshevism, in the want of all Christian consideration for others by men in pushing for their own claims for money or power - in other words, in the world-wide assertion of *self* one cannot help recognising, almost with hopelessness, the failure of religion to direct, and of education to balance, the actions of men.
+The convulsion of the war has opened our eyes to many strange things. Few of us had realised till war had exposed it how thin is the veneer of civilisation over the underlying animal proclivities. In the brutality of even those who boasted of their superior kultur, in the mad riot of Bolshevism, in the want of all Christian consideration for others by men in pushing for their own claims for money or power—in other words, in the world-wide assertion of *self* one cannot help recognising, almost with hopelessness, the failure of religion to direct, and of education to balance, the actions of men.
 
 At the same time there is an encouraging reverse to the picture, where we see such splendid spirit of self-sacrifice and of superhuman endurance and fearlessness of death among the manhoods of the world. With the natural elements, good as well as bad, thus exposed, we surely ought to be able to oust the worst by the interposition of the best.
 
@@ -24,7 +24,7 @@ So it is up to us to develop our efficiency in order to respond to the expectati
 
 ## The Boy-Man
 
-As a preliminary word of comfort to intending Scout masters, I should like to contradict the usual misconception that, to be a successful Scoutmaster, a man must be an Admirable Crichton - a know-all. Not a bit of it.
+As a preliminary word of comfort to intending Scout masters, I should like to contradict the usual misconception that, to be a successful Scoutmaster, a man must be an Admirable Crichton—a know-all. Not a bit of it.
 
 He has simply to be a boy-man, that is:—
 
@@ -56,7 +56,7 @@ The Patrol system and its methods and power are described in the text-books, and
 
 To the man who reads *Scouting for Boys* superficially there is a disappointing lack of religion in the book. But to him who tries it in practice the basic religion underlying it soon becomes apparent. This is not that of any particular church or sect, but it catches on to the boy without his knowing it, and gives him a Christianity for everyday practice, and not merely for Sunday wear.
 
-One writer has recently said of Scouting - "What are the Churches doing to deglect such a lever?"
+One writer has recently said of Scouting—"What are the Churches doing to deglect such a lever?"
 
 Well, they *are* beginning to use it now.
 
@@ -84,7 +84,7 @@ It is a game in which elder brothers (or sisters) can give their younger brother
 
 Its strongest appeal is through Nature Study and Woodcraft. It deals with the individual, not with the Company. It raises intellectual as well as purely physical or purely moral qualities.
 
-At first it used to aim for these ends - now by experience we know that, where properly handled, it gains them.
+At first it used to aim for these ends—now by experience we know that, where properly handled, it gains them.
 
 ## Cadets, Scouts, and Guides
 

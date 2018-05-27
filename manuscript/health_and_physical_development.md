@@ -20,7 +20,7 @@ I feel that, thanks to their innate love of sport, a great deal of the physical 
 
 I would further commend again to the attention of Scoutmasters the book of lectures entitled *The Scoutmasters' Training Course* (London), of which four bear on the subject of this paper, viz. :
 
-"Contience," by Dr. Schofield. "Physical Exercises," by Dr. Wallis. "Health and Food," by Eustace Miles. "Swimming," by H. R. Austin.
+"Continence," by Dr. Schofield. "Physical Exercises," by Dr. Wallis. "Health and Food," by Eustace Miles. "Swimming," by H. R. Austin.
 
 And *The Scoutmasters' Training Course* (*2nd* series).
 
@@ -115,7 +115,7 @@ Then a team uniform of sorts is an attraction to the boys, promotes esprit de co
 
 *Oxygen for Ox's Strength.*—I saw some very smart physical drill by a Scout Troop quite recently in their dub headquarters.
 
-It was very fresh and good, but, my wig, the air was not I It was, to say the least, "niffy." There was no ventilation. The boys were working like engines, but actually undoing their work all the time by sucking in poison instead of strengthening their blood.
+It was very fresh and good, but, my wig, the air was not! It was, to say the least, "niffy." There was no ventilation. The boys were working like engines, but actually undoing their work all the time by sucking in poison instead of strengthening their blood.
 
 Fresh air is half the battle towards producing results in physical exercises and it may advantageously be taken through the skin as well as through the nose when possible.
 
@@ -160,7 +160,7 @@ We are not a brigade—nor a Sunday School—but a school of the woods. We must 
 
 Temperance thus becomes a moral as well as physical detail of training.
 
-*Continence.*-Of all the points in the education of a boy the most difficult and one of the most important is that of sex hygiene. Body, mind, and soul, health, morality, and character, all are involved in the question. It is a matter which has to be approached with tact on the part of the Scoutmaster, according to the individual character of each case. It is not as yet dealt with adequately by the Education authorities. But it is one that cannot be ignored in the education of a boy, still less in that of the girl.
+*Continence.*—Of all the points in the education of a boy the most difficult and one of the most important is that of sex hygiene. Body, mind, and soul, health, morality, and character, all are involved in the question. It is a matter which has to be approached with tact on the part of the Scoutmaster, according to the individual character of each case. It is not as yet dealt with adequately by the Education authorities. But it is one that cannot be ignored in the education of a boy, still less in that of the girl.
 
 There is a great barrier of prejudice and false prudery on the part of parents and public still to be overcome, and this has to be recognised and handled tactfully. It is, of course, primarily the duty of parents to see that their children receive proper instruction, but a very large number of them shirk their duty and then build up excuses for doing so. Such neglect is little short of criminal.
 
@@ -178,7 +178,7 @@ In *What a Boy Should Know*, Drs. Schofield and Jackson write:—
 
 A Scoutmaster has here a tremendous field for good. He must in the first instance ascertain whether the father of the boy has any objection to his talking to him on the subject.
 
-Then he will best enter into it in a matter-of-fact way among other subjects on which he may be advising him, placing himself on the footing of an elder brother in doing so. To some Scoutmasters who have never dope it the question seems a very difficult one to approach. It is in reality as easy as shelling peas. And the value of it cannot be exaggerated.
+Then he will best enter into it in a matter-of-fact way among other subjects on which he may be advising him, placing himself on the footing of an elder brother in doing so. To some Scoutmasters who have never done it the question seems a very difficult one to approach. It is in reality as easy as shelling peas. And the value of it cannot be exaggerated.
 
 Personally, apart from explaining as a preliminary how plants, and fishes, and animals reproduce their species, I have found it appeal to boys, as it did to me when I first heard it, to tell them how in every boy is growing the germ of another child to come from him. That germ has been handed down to him from father to son from generations back. He has it in trust from God; it is his duty to keep it until he is married and passes it to his wife for reproduction. He cannot honourably forget his charge and throw it away in the meantime. Temptation will come to him in many forms to do so, but he has got to be strong and to guard it.
 
@@ -196,7 +196,7 @@ It is well to establish a good tone and a public opinion among your boys on a pl
 
 *Walking the Tight Rope*.—This may strike some readers as a curious means of teaching self-discipline or health. But it has been found by experience to do so.
 
-You may see it being practised in Army gymnasia in the form of men walking a plank fixed up sidewalks it a height of some feet above the floor. It is found that by getting them to concentrate their whole attention on this ticklish test, they gain a close hold over themselves and their nerves. The experiment has been carried further to the extent that it has been found that if a soldier is making bad practice on the rifle-range a few practices in "walking the plank" readily bring back for him the necessary self-control and power of concentration.
+You may see it being practised in Army gymnasia in the form of men walking a plank fixed up sideways it a height of some feet above the floor. It is found that by getting them to concentrate their whole attention on this ticklish test, they gain a close hold over themselves and their nerves. The experiment has been carried further to the extent that it has been found that if a soldier is making bad practice on the rifle-range a few practices in "walking the plank" readily bring back for him the necessary self-control and power of concentration.
 
 It is an exercise that appeals to boys. They can bind several Scout staves together as a balancing pole, which will give them additional power of balance in their first efforts.
 
@@ -215,9 +215,9 @@ Dr. Kerr, the Medical Officer to the Education Branch of the London County Counc
 
 One hears a great many people advocating drill as the way to bring about better physical development among boys. I have had a good deal to do with drilling in my time, and if people think they are going to develop a boy's physical strength and set-up by drilling him for an hour a week, they will meet with disappointing results.
 
-Drill as given to soldiers, day by day, for month after month, undoubtedly does bring about great physical development. But the instructors - these are well- trained experts - have their pupils continually under their charge and under strict discipline, and even they occasionally make mistakes, and heart-strain and other troubles are not infrequently produced even in the grown and formed man.
+Drill as given to soldiers, day by day, for month after month, undoubtedly does bring about great physical development. But the instructors—these are well-trained experts—have their pupils continually under their charge and under strict discipline, and even they occasionally make mistakes, and heart-strain and other troubles are not infrequently produced even in the grown and formed man.
 
-Furthermore, drill is all a matter of instruction, of hammering it into the boys, and is in no way an *education* where they learn it for themselves.
+Furthermore, drill is all a matter of *instruction*, of hammering it into the boys, and is in no way an *education* where they learn it for themselves.
 
 Colonel Petersen, the Director of Physical Training in Australia, had a talk with me on that subject, and told how much is being done in Australia and in foreign countries in that line, while we in England are very much behind-hand. But in no case does the Government rely upon compulsory cadet or soldiering to supply the physical training, although such service is prevalent in those countries; it is done entirely in the schools. And the teachers have to be trained experts with a proper knowledge of anatomy, otherwise the danger of overstrain for the children is very great.
 
@@ -225,7 +225,7 @@ As regards drill for Scouts, I have frequently had to remind Scoutmasters that i
 
 I know a very smart regiment in which the recruits received very little barrack-square drill; when once they had been shown how to hold themselves they were told that as soon as they could do it habitually they would be allowed to go out and take their pleasures and their duties as ordinary soldiers. It was "*up to them*" to smarten themselves up instead of having deportment drilled into them week after week for months. They drilled themselves and each other, and passed out of the recruit stage in less than half the ordinary time.
 
-Education as opposed to instruction once more I The result was obtained by putting the ambition and responsibility on to the men themselves. And that is exactly the way by which, I believe, that you can best produce the physical development among boys.
+Education as opposed to instruction once more! The result was obtained by putting the ambition and responsibility on to the men themselves. And that is exactly the way by which, I believe, that you can best produce the physical development among boys.
 
 But, after all, natural games, plenty of fresh air, wholesome food, and adequate rest do far more to produce well-developed healthy boys than any amount of physical or military drill.
 
@@ -257,11 +257,11 @@ That rub down with a damp rough towel, where baths are impossible, is of very bi
 
 *Fresh Air*.—I have drawn attention in *Scouting for Boys* to the value of breathing fresh air. Few people realise how poisonous is the air of a shut room or railway carriage where many are congregated.
 
-*Food* is an all-important consideration for the growing lad, yet there is a vast amount of ignorance on the subject on the part of parents, and, therefore, on the part of the boys. It is helpful towards the energy and health of his boys - especially in camp that the Scoutmaster should know something about the matter.
+*Food* is an all-important consideration for the growing lad, yet there is a vast amount of ignorance on the subject on the part of parents, and, therefore, on the part of the boys. It is helpful towards the energy and health of his boys—especially in camp—that the Scoutmaster should know something about the matter.
 
 As regards quantity, a boy between thirteen and fifteen requires about 80 per cent of a man's allowance. He will gladly put down 150 per cent if permitted.
 
-The meal should be as simple and unmixed as possible, all vegetable (i.e. bread, oatmeal, vegetables, and fruit) or all animal (soup, meat, and cheese). The latter gives him the greater amount of protein to the ounce, and protein is the essential for body-building. The former gives him a greater amount of the natural salts needed. Cheese is for some indigestible though sustaining-if cooked it is much more easily assimilated.
+The meal should be as simple and unmixed as possible, all vegetable (*i.e.* bread, oatmeal, vegetables, and fruit) or all animal (soup, meat, and cheese). The latter gives him the greater amount of protein to the ounce, and protein is the essential for body-building. The former gives him a greater amount of the natural salts needed. Cheese is for some indigestible though sustaining—if cooked it is much more easily assimilated.
 
 Oatmeal is a grand food for boys. The Report of the National Food Inquiry Bureau gives results of inquiry among—
 

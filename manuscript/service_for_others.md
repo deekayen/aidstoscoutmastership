@@ -152,7 +152,7 @@ To thank God for blessings or enjoyments received.
 
 To ask for moral protection, strength, or guidance in something for God in return.
 
-There may be many difficulties as regard the definition of the religious training in our Movement where so many different denominations exist, and the details of expression of duty to God have, therefore, to be left largely in the hands of the local authority. But there is no difficulty at all in suggesting the line to take on the human side, since direct duty to once's neighbour is implied in almost every form of belief. Scouting is a real help in the practice of this. As a first point it is not confined to giving charity—it needs more than that—it often demands self-sacrifice to be effective.
+There may be many difficulties as regard the definition of the religious training in our Movement where so many different denominations exist, and the details of expression of duty to God have, therefore, to be left largely in the hands of the local authority. But there is no difficulty at all in suggesting the line to take on the human side, since direct duty to one's neighbour is implied in almost every form of belief. Scouting is a real help in the practice of this. As a first point it is not confined to giving charity—it needs more than that—it often demands self-sacrifice to be effective.
 
 ## Selfishness
 
@@ -193,7 +193,7 @@ A further valuable aid to the training in fairness is the holding of debates amo
 
 A practical step in ensuring this is not to vote by show of hands, where the hesitating or inattentive boy votes according to the majority. Each should record his vote "ay" or "no" on a slip of paper and hand it in. This ensures his making up his mind for himself after duly weighing both sides of the question.
 
-In the same way mock trials or arbitration of quarrels, if carried out seriously and on the lines of a law court, are of the greatest value in teaching the boys the same idea of justice and fair play, and also give them a minor experience of what their civic duties may be as jurymen or witnesses later on. The Court of Honour in the Troop is another step in the same direction, and as the boys here have a real responsibility by being members of the Court, the seriousness of their views is brought home to them a11 the more, and encourages them to think out carefully the right line to take when they have heard all the arguments on both sides.
+In the same way mock trials or arbitration of quarrels, if carried out seriously and on the lines of a law court, are of the greatest value in teaching the boys the same idea of justice and fair play, and also give them a minor experience of what their civic duties may be as jurymen or witnesses later on. The Court of Honour in the Troop is another step in the same direction, and as the boys here have a real responsibility by being members of the Court, the seriousness of their views is brought home to them all the more, and encourages them to think out carefully the right line to take when they have heard all the arguments on both sides.
 
 Thus a Scoutmaster, who uses his ingenuity towards the end of teaching fair play, unselfishness and sense of duty to others, may make ample opportunities, whether indoors or out, for training his Scouts. Of all the subjects with which we are dealing, I believe this to be one of the most important towards self-governing citizenship, though I fear I have only touched upon it in a very sketchy manner.
 

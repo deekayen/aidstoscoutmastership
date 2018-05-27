@@ -28,7 +28,7 @@ Are we after the war to allow the fellow-feeling thereby engendered to be dissip
 
 The war will here have helped us if only we determine to make the best use of it. Our aim should be to mingle class with class, and to bring about a happier and more human life for all, so that the poorer shall reap his share of enjoyment just as much as his more well-to-do brother; the employer should be humanised to the extent of sympathising and dealing squarely and liberally with his employees; the worker should be shown how to use his means to the best advantage in making for himself a better home and a fuller life. Both parties should realise that by combination of effort they can bring about better conditions for each.
 
-Education comes into the question as a key - and mainly education in character.
+Education comes into the question as a key—and mainly education in character.
 
 Unselfishness, self-discipline, wider fellow-feeding, sense of honour and duty should be implanted, and such attributes as enable a man, *no matter what his standing,* to look beyond his own immediate ledger or bench to see the good of his work for the community, putting into his routine some service for others as well as for himself, developing also some perception of what is beautiful in nature, in art and in literature, so that his higher interests may be aroused, and he may get enjoyment from his surroundings whatever they may be.
 

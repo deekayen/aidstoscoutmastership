@@ -26,7 +26,7 @@ Men talk of having fine Troops of 60 or even 100—Cadet Companies even run to 1
 
 Why worry about individual training? they ask. Because it is the only way by which you can educate. You can instruct any number of boys, a thousand at a time if you have a loud voice and attractive methods of disciplinary means. But that is not training - it is not education.
 
-Education is the thing that counts in building character and In making men.
+Education is the thing that counts in building character and in making men.
 
 The incentive to perfect himself, when properly instilled into the individual, brings about his active effort on the line most suitable to his temperament and powers.
 
@@ -93,7 +93,7 @@ The first Law, namely, A Scout's honour is to be trusted (A Scout is Trustworthy
 
 The investiture of the Scout is purposely made into something of a ceremony, since a little ritual of that kind if carried out with strict solemnity, impresses the boy; and considering the grave importance of the occasion, it is only right that he should be impressed as much as possible. Then it is of great importance that the Scout should periodically renew his knowledge of the Law. Boys are apt to be forgetful, and it should never be allowed that a boy who has made his solemn promise to carry out the Scout Law should, at any time, not be able to say what the law is.
 
-Once the Scout understands what his honour is and has, by his initiation, been put upon his honour, the Scoutmaster must entirely trust him to do things. You must show him by Your action that you consider him a responsible being. Give him charge of something, whether temporary or permanent, and *expect* him to carry out his charge faithfully. Don't keep prying to see how he does it. Let him do it his own way, let him come a howler over it if need be, but in any case leave him alone and trust him to do his best. Trust should be the basis of all our moral training.
+Once the Scout understands what his honour is and has, by his initiation, been put upon his honour, the Scoutmaster must entirely trust him to do things. You must show him by your action that you consider him a responsible being. Give him charge of something, whether temporary or permanent, and *expect* him to carry out his charge faithfully. Don't keep prying to see how he does it. Let him do it his own way, let him come a howler over it if need be, but in any case leave him alone and trust him to do his best. Trust should be the basis of all our moral training.
 
 Giving responsibility is the key to success with boys, especially with the rowdiest and most difficult boys.
 

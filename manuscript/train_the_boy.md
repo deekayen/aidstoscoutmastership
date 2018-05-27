@@ -37,7 +37,7 @@ Until the balance is on the other side of the ledger education cannot well be ca
 
 The remedy which is now generally being suggested for the improvement of the efficiency of our nations is that instruction which has hitherto passed as education should be done away with as out-of-date, and education proper established in its place. As a first subject character training should be introduced into primary and secondary schools, since it is the essential quality for a man in making his career, as well as for a nation in maintaining its place in the competition in commerce and prosperity.
 
-Secondly, that handicrafts should be introduced into days schools, not merely with the sole idea of making the child into a good workman - which seems to have been the limit of view of education in the past - but as the invention, design, and other properties which go to develop the mind, and intelligence, character and thrift; and also of showing to the teacher the natural bent of each individual pupil.
+Secondly, that handicrafts should be introduced into day schools, not merely with the sole idea of making the child into a good workman - which seems to have been the limit of view of education in the past - but as the invention, design, and other properties which go to develop the mind, and intelligence, character and thrift; and also of showing to the teacher the natural bent of each individual pupil.
 
 Thirdly, education in civics, contemporary history, and commercial geography would all raise the level of thought and work among the rising generation.
 
@@ -45,7 +45,7 @@ Also, there is a large opportunity amongst the enormous proportion of physically
 
 The aim of education general has been well summarised in that excellent paper *The Child*, in these words:-
 
-"No man can be called education who has not a willingness and a desire, as well as a trained ability, to do his part in the world's work." And this is the main road to happiness and prosperity for all.
+"No man can be called educated who has not a willingness and a desire, as well as a trained ability, to do his part in the world's work." And this is the main road to happiness and prosperity for all.
 
 ## What the Boy Scout Training is doing in the Meantime
 
@@ -71,7 +71,7 @@ The principles of Scouting are all in the right direction. The success in their 
 
 I would add that undoubtedly it is through sport that you an best get a hold of a boy. Many of our working-class lads have never known what it was to play any regular game with strict rules. This, in itself, is an education. When you have your boys running round in a spiral rally you will notice few of them are light and active runners; probably they have never done much running. Nor do boys of that kind usually have discipline, sense of fair play, of keenness for winning simply for the honour of the thing without thought of prizes or rewards. All these come very quickly with a little organised play in competition with other Patrols or Troops. I prefer football, basket ball, hockey, and rounders as being the best games, since they are played by *teams* in which each player plays in his place under good discipline, where pluck, determination, unselfishness, and good temper are developed. I read recently in the *Boys' Brigade Gazette* the following excellent thought in that connection:—
 
-"Take football seriously. If you do, it may prove to be one of the roads leading to the Kingdom of Heaven. Football is almost as important a part of the company's training as drill and - my meaning will not be mistaken - as the Bible-class. It should be in the regular programme of every company, only it must be *football*, and not merely playing at playing football."
+"Take football seriously. If you do, it may prove to be one of the roads leading to the Kingdom of Heaven. Football is almost as important a part of the company's training as drill and—my meaning will not be mistaken—as the Bible-class. It should be in the regular programme of every company, only it must be *football*, and not merely playing at playing football."
 
 Drill on military lines has its good points, but to the boy it has no visible object, and is, therefore, apt to pall upon him. Far preferable is the drill in fire brigade, rocket apparatus, trek cart, lifeboat launching, bridge building, and other sets of exercises. These demand equal smartness, activity, and discipline, but the point is that each boy is using his head in doing his own particular share of the work for the success of the whole team. Moreover, competitions in these drills are of highest interest to the boys as well as to the onlookers. An ulterior point is that they can breed morale, *esprit de corps*, and fair play. It should be "the thing" for the boys never to bear envy or to mention unfairness of defeated, and whatever disappointment they may feel they should only show cordial praise for the other side. This means true self-discipline and unselfishness, and it promotes that good feeling all round which is so much needed for breaking down class prejudice in our people.
 
@@ -107,7 +107,7 @@ If one considers and studies these different attributes in the boy one is in a f
 
 Mr. Casson, writing in the magazine *Teachers' World*, 25th December, 1928, thus describes that complicated work of understanding the Nature of the boy:—
 
-> "Judging from my own experience, I would say that boys have a world of their own - a world that they make for themselves; and neither the teacher nor the lessons are admitted to this world. A boy's world has its own events and standards and code and gossip and public opinion.
+> "Judging from my own experience, I would say that boys have a world of their own—a world that they make for themselves; and neither the teacher nor the lessons are admitted to this world. A boy's world has its own events and standards and code and gossip and public opinion.
 >
 > "In spite of teachers and parents, boys remain loyal to their own world. They obey their own code, although it is quite a different code to the one that is taught to them at home and in the schoolroom. They gladly suffer martyrdom at the hands of uncomprehending adults, rather than be false to their own code.
 >
@@ -115,7 +115,7 @@ Mr. Casson, writing in the magazine *Teachers' World*, 25th December, 1928, thus
 >
 > "Fun, fighting, and feeding! These are the three indispensable elements of the boy's world. These are basic. They are what boys are in earnest about; and they are not associated with teachers nor schoolbooks.
 >
-> "According to public opinion in Boydom, to sit for four hours a day at a desk indoors is a wretched waste of time and daylight. Did anyone ever know a boy - a normal healthy boy, who begged his father to buy him a desk? Or did anyone ever know a boy, who was running about outdoors, go and plead with his mother to be allowed to sit down in the drawing room?
+> "According to public opinion in Boydom, to sit for four hours a day at a desk indoors is a wretched waste of time and daylight. Did anyone ever know a boy—a normal healthy boy, who begged his father to buy him a desk? Or did anyone ever know a boy, who was running about outdoors, go and plead with his mother to be allowed to sit down in the drawing room?
 >
 > "Certainly not. A boy is not a desk animal. He is not a sitting-down animal. Neither is he a pacifist nor a believer in safety first; nor a book-worm, nor a philosopher.
 >
