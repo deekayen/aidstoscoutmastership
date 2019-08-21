@@ -38,7 +38,7 @@ That is where the personality and ability of the Scoutmaster come in.
 
 Let us consider a few of the qualities, moral and mental that go to make *character*, and then see how the Scoutmaster can get the boy to develop these for himself through Scouting.
 
-| Qualities that make character. | Attributes which they include. | See Scout Law. | Scouting practices which inculate them. |
+| Qualities that make character. | Attributes which they include. | See Scout Law. | Scouting practices which inculcate them. |
 |------|------|------|------|
 | *(a)* Reverence | Loyalty to God. Duty to neighbour. Respect for others. | Scouts' Promise, Scout Law No. 3 | Good turns. Nature study. "Missioner's" duties. |
 |------|------|------|------|
