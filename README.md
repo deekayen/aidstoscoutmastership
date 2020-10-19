@@ -1,6 +1,6 @@
 # Aids to Scoutmastership
 
-[![Project Status: Inactive – The project has reached a stable, usable state but is no longer being actively developed; support/maintenance will be provided as time allows.](https://www.repostatus.org/badges/latest/inactive.svg)](https://www.repostatus.org/#inactive)
+[![Project Status: Inactive – The project has reached a stable, usable state but is no longer being actively developed; support/maintenance will be provided as time allows.](https://www.repostatus.org/badges/latest/inactive.svg)](https://www.repostatus.org/#inactive) [![Unlicense](https://img.shields.io/badge/license-unlicense-blue)](https://unlicense.org/)
 
 Markdown version of Aids to Scoutmastership by Lord Baden-Powell of Gilwell.
 
